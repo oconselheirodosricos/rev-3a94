@@ -89,7 +89,7 @@ Resposta: Podemos ter certeza de que Jeová vai continuar do nosso lado, mesmo q
 
 Complementar 1: Repare que a ajuda que Joseph descreve não foi só emocional, foi através de pessoas concretas, "nossos queridos irmãos e irmãs", e de provisão material real. Isso ensina que "Jeová vai ajudar" quase sempre tem endereço: a congregação, alguém que liga, alguém que oferece.
 
-Complementar 2: Joseph cita a letra de um clipe musical, "Estou com Jeová" (nota de rodapé do artigo): "Que surpresas vou ter, não sei dizer. Mas eu sei que Jeová vai me proteger." É interessante que ele recorreu a uma música, não só a um versículo, pra expressar o mesmo consolo, mostrando que os recursos que Jeová dá pra consolar vêm em formatos variados.
+Complementar 2: Joseph cita a letra de um clipe musical, "Estou com Jeová" (nota de rodapé do artigo): "Que surpresas vou ter, não sei dizer. Mas eu sei que [Jeová] vai me proteger." É interessante que ele recorreu a uma música, não só a um versículo, pra expressar o mesmo consolo, mostrando que os recursos que Jeová dá pra consolar vêm em formatos variados.
 
 Pra Laurinha: Jeová não vai te deixar.
 ```
@@ -197,7 +197,7 @@ Resposta: Saber que Jeová não se esquece das pessoas que perdemos consola muit
 
 Complementar 1: Repare no verbo que Michael usa: "preciosos". Não é só "lembrados", é "preciosos", uma palavra de valor, não de arquivo. Isso muda o peso da promessa: não é que Jeová guardou um registro, é que ele guarda pessoas que ama.
 
-Complementar 2: O próprio parágrafo é honesto: "embora a promessa da ressurreição não acabe com a nossa dor". Isso é importante porque tira a pressão de "eu deveria estar bem, já que sei da ressurreição". A esperança consola, mas não elimina o processo real de luto, e as duas coisas podem coexistir.
+Complementar 2: O próprio parágrafo é honesto: "Embora a promessa da ressurreição não acabe com a nossa dor". Isso é importante porque tira a pressão de "eu deveria estar bem, já que sei da ressurreição". A esperança consola, mas não elimina o processo real de luto, e as duas coisas podem coexistir.
 
 Pra Laurinha: Lembrar do meu amor ajuda a esperar.
 ```
