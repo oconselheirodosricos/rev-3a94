@@ -161,7 +161,7 @@ Resposta: Porque só observar a criação não é suficiente, é preciso usar a 
 
 ```
 O que a pergunta quer dizer: Um exemplo real de como meditar na criação mesmo sem contato direto com a natureza.
-O que o texto nos mostra: Patrick, de Brazzaville, no Congo, observa da sacada do apartamento insetos e pássaros procurando comida ou abrigo. Ele conta: "Eu aprendi que Jeová se preocupa com todas as suas criações, até com aquelas que parecem insignificantes. Isso me ajudou a ter certeza que Jeová sempre vai cuidar de mim."
+O que o texto nos mostra: Patrick, de Brazzaville, no Congo, observa da sacada do apartamento insetos e pássaros procurando comida ou abrigo. Ele conta: “Eu aprendi que Jeová se preocupa com todas as suas criações, até com aquelas que parecem insignificantes. Isso me ajudou a ter certeza que Jeová sempre vai cuidar de mim.”
 Como aplicar na nossa vida: O que falta pra muita gente não é acesso à natureza, é o hábito de reparar. Que oportunidade você tem, mesmo pequena, pra observar a criação esta semana?
 Resposta: Ele observa a natureza mesmo numa cidade grande, da sacada de casa, e usa isso pra meditar sobre o cuidado de Jeová com toda a criação, inclusive com ele mesmo.
 ```

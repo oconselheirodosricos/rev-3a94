@@ -151,7 +151,7 @@ Resposta: Conseguimos imitá-lo. Fomos criados à imagem de Jeová, por isso tem
 
 Complementar 1: O contraste com os escribas e fariseus é forte de propósito: eles conheciam a Lei de cor, mas não conheciam o Deus que estava por trás dela. Conhecimento de regra sem conhecimento da Pessoa produz religiosidade seca, exatamente o oposto do que este estudo pede.
 
-Complementar 2: 1 João 4:8, 11 fecha esse raciocínio: "Deus é amor"... "se Deus tanto nos amou, também nós devemos amar uns aos outros." Imitar Jeová não é decorar uma lista de qualidades, é deixar que o amor dele, que a gente vai conhecendo cada vez melhor, molde o nosso próprio jeito de tratar as pessoas.
+Complementar 2: 1 João 4:8, 11 fecha esse raciocínio: "Deus é amor", e por isso "se Deus tanto nos amou, também nós devemos amar uns aos outros". Imitar Jeová não é decorar uma lista de qualidades, é deixar que o amor dele, que a gente vai conhecendo cada vez melhor, molde o nosso próprio jeito de tratar as pessoas.
 
 Pra Laurinha: Aprender sobre Jeová ajuda a imitar ele.
 ```
@@ -199,7 +199,7 @@ Pra Laurinha: Pensar na criação mostra Jeová.
 **15. O que Patrick faz para conhecer melhor a Jeová, e o que você pode fazer? (Veja também a imagem.)**
 
 ```
-Resposta: Patrick, que mora em Brazzaville, capital da República do Congo, se esforça pra observar a criação mesmo morando numa cidade grande. Da sacada do apartamento, ele sempre vê insetos ou pequenos pássaros procurando comida ou lugar pra morar, e uma vez viu pássaros construindo um ninho aconchegante com materiais da vizinhança. Mas ele não parou na observação, usou isso pra meditar profundamente sobre o Criador. Ele diz: "Eu aprendi que Jeová se preocupa com todas as suas criações, até com aquelas que parecem insignificantes. Isso me ajudou a ter certeza que Jeová sempre vai cuidar de mim e não vai deixar faltar nada que eu preciso."
+Resposta: Patrick, que mora em Brazzaville, capital da República do Congo, se esforça pra observar a criação mesmo morando numa cidade grande. Da sacada do apartamento, ele sempre vê insetos ou pequenos pássaros procurando comida ou lugar pra morar, e uma vez viu pássaros construindo um ninho aconchegante com materiais da vizinhança. Mas ele não parou na observação, usou isso pra meditar profundamente sobre o Criador. Ele diz: “Eu aprendi que Jeová se preocupa com todas as suas criações, até com aquelas que parecem insignificantes. Isso me ajudou a ter certeza que Jeová sempre vai cuidar de mim e não vai deixar faltar nada que eu preciso.”
 
 Complementar 1: Repare que Patrick não precisou ir a uma floresta pra fazer isso, ele fez da sacada de um apartamento numa cidade grande. Isso derruba a desculpa de "eu moro numa cidade grande demais pra ter contato com a natureza": o que faltou pra muita gente não é acesso, é o hábito de reparar.
 
@@ -227,7 +227,7 @@ O que aprendemos nesse trecho: conhecer Jeová não tem ponto final, nem depois 
 **17-18. Por que podemos dizer que nunca vamos parar de aprender sobre Jeová?**
 
 ```
-Resposta: Porque, mesmo no novo mundo, ainda vamos aprender muito mais sobre Jeová. Vamos receber novos rolos com orientações sobre como viver no Paraíso (Apocalipse 20:12), teremos mais contato com a natureza (Isaías 11:6-9) e vamos viver experiências que nunca vivemos, como ver a ressurreição das pessoas que amamos e ficar cada dia mais próximos da perfeição. Jamais vamos parar de aprender sobre Jeová: ele sempre existiu (Salmo 90:2), e por isso “é impossível medir o seu entendimento” (Salmo 147:5). A humanidade "nunca vai compreender plenamente o trabalho do verdadeiro Deus" (Eclesiastes 3:11). Por isso, não importa há quanto tempo servimos a Jeová, queremos aproveitar toda oportunidade pra conhecer cada vez mais o nosso amoroso Pai.
+Resposta: Porque, mesmo no novo mundo, ainda vamos aprender muito mais sobre Jeová. Vamos receber novos rolos com orientações sobre como viver no Paraíso (Apocalipse 20:12), teremos mais contato com a natureza (Isaías 11:6-9) e vamos viver experiências que nunca vivemos, como ver a ressurreição das pessoas que amamos e ficar cada dia mais próximos da perfeição. Jamais vamos parar de aprender sobre Jeová: ele sempre existiu (Salmo 90:2), e por isso “é impossível medir o seu entendimento” (Salmo 147:5). Nós ‘nunca vamos compreender plenamente o trabalho do verdadeiro Deus’ (Eclesiastes 3:11). Por isso, não importa há quanto tempo servimos a Jeová, queremos aproveitar toda oportunidade pra conhecer cada vez mais o nosso amoroso Pai.
 
 Complementar 1: Repare que o motivo dado não é "porque Jeová é misterioso e esconde coisas", é porque ele é grande demais pra caber num tempo limitado de estudo. Salmo 90:2 diz que ele existe de tempo indefinido a tempo indefinido. Um Deus assim nunca vai virar um assunto esgotado, nem daqui a um milhão de anos.
 

@@ -2,6 +2,7 @@
 
 > **Sentinela de Estudo** · Semana de 7 a 13 de setembro de 2026
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-julho-2026/O-que-aprendemos-com-os-gibeonitas/)
+> Publicação: A Sentinela, edição de estudo de julho de 2026, páginas 2-7 (citação oficial da fonte: w26 julho pp. 2-7)
 
 **Texto-base:** Josué 10:1 (TNM): “Os habitantes de Gibeão tinham feito paz com Israel e permaneciam entre eles.” [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=06010001)
 
@@ -45,7 +46,7 @@ Resposta: Porque, apesar de aparecerem pouco, os relatos sobre os gibeonitas atr
 
 ```
 O que a pergunta quer dizer: De onde vinham os gibeonitas e o que os levou a buscar a paz com Israel.
-O que o texto nos mostra: Eram uma nação cananeia chamada heveus, moradora da cidade murada de Gibeão (parágrafo 3). Perceberam que lutar contra Israel não fazia sentido porque viram que Jeová estava lutando pelo povo dele e sabiam que ele tinha prometido expulsar todos os cananeus daquela terra: “Expulsarei de diante de você os amorreus, os cananeus, os hititas, os perizeus, os heveus e os jebuseus” (Êxodo 34:11).
+O que o texto nos mostra: Eram uma nação cananeia chamada heveus, moradora da cidade murada de Gibeão (parágrafo 3). A nota "a" do artigo acrescenta que, pelo visto, esse grupo incluía homens de Gibeão e de três outras cidades dos heveus, “Quefira, Beerote e Quiriate-Jearim” (Josué 9:17). Perceberam que lutar contra Israel não fazia sentido porque viram que Jeová estava lutando pelo povo dele e sabiam que ele tinha prometido expulsar todos os cananeus daquela terra: “Expulsarei de diante de você os amorreus, os cananeus, os hititas, os perizeus, os heveus e os jebuseus” (Êxodo 34:11).
 Como aplicar na nossa vida: Eles levaram a palavra de Jeová mais a sério do que os vizinhos que escolheram guerra, porque reconheceram a força dela mesmo estando do lado que seria expulso. Você já mudou uma decisão porque levou a sério algo que Jeová disse?
 Resposta: Uma nação cananeia (os heveus) que morava em Gibeão, e quis a paz porque reconheceu que Jeová estava lutando por Israel e cumpriria a promessa de expulsar os cananeus (Êxodo 34:11; Josué 9:24).
 ```
@@ -94,7 +95,7 @@ O que aprendemos nesse trecho: séculos depois, um rei quebra o pacto e comete u
 
 ```
 O que a pergunta quer dizer: O que Saul fez contra o povo que Israel tinha jurado proteger.
-O que o texto nos mostra: O rei Saul, “no seu zelo pelo povo de Israel e de Judá” (2 Samuel 21:2), se virou contra os gibeonitas e tentou eliminá-los totalmente, resultando na morte de muitos deles. Ele quebrou um acordo de paz que já existia há um longo tempo entre Israel e os gibeonitas (2 Samuel 21:1, 2).
+O que o texto nos mostra: O rei Saul, “no seu zelo pelo povo de Israel e de Judá” (2 Samuel 21:2), se virou contra os gibeonitas e tentou eliminá-los totalmente, resultando na morte de muitos deles. Ele quebrou um acordo de paz que já existia há um longo tempo entre Israel e os gibeonitas (2 Samuel 21:1, 2). A nota "b" do artigo registra que a Bíblia não diz especificamente por que Saul cometeu esse crime, e que alguns estudiosos sugerem que ele se deixou levar por um espírito nacionalista.
 Como aplicar na nossa vida: A Bíblia não explica com certeza o motivo de Saul, mas a injustiça não deixa de ser injustiça só porque o motivo não é totalmente claro. Você já se pegou justificando um erro só porque não entendia bem o motivo por trás dele?
 Resposta: Ele tentou eliminar totalmente os gibeonitas, quebrando um acordo de paz que já existia há gerações entre eles e Israel (2 Samuel 21:1, 2).
 ```

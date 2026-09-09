@@ -28,7 +28,7 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer por
 
 ---
 
-**1-2. (a) Como Jeová nos ajuda quando estamos tristes?**
+**1-2. Como Jeová nos ajuda quando estamos tristes?**
 
 ```
 O que a pergunta quer dizer: Que tipo de consolo Jeová oferece pra quem está sofrendo.
@@ -195,6 +195,6 @@ Comentando a imagem: a sequência mostra o mesmo casal em dois momentos, primeir
 Comentando a imagem: na primeira cena o irmão está sozinho, cabisbaixo, claramente pesando um erro do passado; na segunda, o mesmo irmão aparece sorrindo, de mão levantada, comentando numa sala de aula da Escola do Serviço de Pioneiro. Ligada ao parágrafo 11 e a Isaías 38:17, a nota de rodapé confirma que é o mesmo homem, agora livre do peso que carregava. A lição prática é visual e direta: o erro do passado não impediu o avanço espiritual dele, porque ele aceitou que Jeová realmente jogou aquele pecado pra trás de si.
 
 @IMG 14 | https://cms-imgp.jw-cdn.org/img/p/2026483/T/art/2026483_T_cnt_3_lg.jpg | Conjunto de imagens: Uma irmã sendo beneficiada pela promessa de Deus encontrada em Isaías 26:19, que diz: “Os seus mortos viverão.” 1. Ela está muito triste sentada sozinha na cama de sua filhinha que faleceu, segurando um porta-retratos. 2. Ela está feliz abraçando sua filha, que foi ressuscitada. | A esperança de vermos de novo as pessoas que perdemos é uma certeza |
-Comentando a imagem: a primeira cena mostra a mãe sozinha, sentada na cama vazia da filha, com um porta-retratos nas mãos, o silêncio do quarto quase visível; a segunda mostra o reencontro, a mãe abraçando a mesma menina, já ressuscitada. Ligada ao parágrafo 14 e a Isaías 26:19, a fonte não trouxe nota de rodapé pra esta imagem, então o comentário fica só no que a própria cena mostra. A lição prática é que a esperança da ressurreição não é conceito abstrato, é literalmente o quarto vazio virando abraço de novo.
+Comentando a imagem: a primeira cena mostra a mãe sozinha, sentada na cama vazia da filha, com um porta-retratos nas mãos, o silêncio do quarto quase visível; a segunda mostra o reencontro, a mãe abraçando a mesma menina, já ressuscitada. Ligada ao parágrafo 14 e a Isaías 26:19, a legenda da fonte já entrega a leitura da cena: "A esperança de vermos de novo as pessoas que perdemos é uma certeza". Diferente das outras duas imagens deste estudo, esta não tem nota de rodapé com descrição na fonte, então o resto do comentário fica no que a própria cena mostra. A lição prática é que a esperança da ressurreição não é conceito abstrato, é literalmente o quarto vazio virando abraço de novo.
 
 @CANTICO 3 | Jeová, minha força e esperança

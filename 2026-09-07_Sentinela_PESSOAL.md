@@ -2,6 +2,7 @@
 
 > **Sentinela de Estudo** · Semana de 7 a 13 de setembro de 2026
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-julho-2026/O-que-aprendemos-com-os-gibeonitas/)
+> Publicação: A Sentinela, edição de estudo de julho de 2026, páginas 2-7 (citação oficial da fonte: w26 julho pp. 2-7)
 
 **Texto-base:** Josué 10:1 (TNM): “Os habitantes de Gibeão tinham feito paz com Israel e permaneciam entre eles.” [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=06010001)
 
@@ -37,7 +38,7 @@ O que vemos aqui: um povo estrangeiro e assustado se aproxima de Israel com um e
 ```
 Resposta: Porque, apesar de aparecerem pouco, os relatos sobre os gibeonitas atravessam a Bíblia inteira e revelam muito sobre Jeová. Tudo começa no ano 1473 antes de Cristo (parágrafo 1), logo depois de Israel conquistar Jericó e Ai, quando um grupo de viajantes chega dizendo ser de uma terra distante e pede um acordo de paz. Esses viajantes são os gibeonitas (parágrafo 2), e essa é só a primeira aparição deles na Bíblia: eles moraram entre os israelitas por muitos séculos, e os relatos sobre eles nos ensinam lições valiosas e revelam muito sobre Jeová Deus.
 
-Complementar 1: Repare no timing. Israel tinha acabado de vencer Jericó e Ai, as duas primeiras cidades da conquista, quando os gibeonitas aparecem (parágrafo 1). Não foi coincidência: eles viram o resultado das duas primeiras batalhas e tiraram uma conclusão rápida e correta sobre quem estava por trás delas. Perceber Jeová agindo e reagir rápido é a primeira lição do artigo, antes mesmo da primeira pergunta numerada.
+Complementar 1: Repare no momento em que eles aparecem. Israel tinha acabado de vencer Jericó e Ai, as duas primeiras cidades da conquista, quando os gibeonitas aparecem (parágrafo 1). Não foi coincidência: eles viram o resultado das duas primeiras batalhas e tiraram uma conclusão rápida e correta sobre quem estava por trás delas. Perceber Jeová agindo e reagir rápido é a primeira lição do artigo, antes mesmo da primeira pergunta numerada.
 
 Complementar 2: O artigo chama atenção pra algo incomum: um povo secundário que reaparece ao longo de quase mil anos de história bíblica, do tempo de Josué até o retorno do exílio em Babilônia (parágrafo 2). Poucos personagens não israelitas têm esse alcance. Isso é sinal de que a lição não é um episódio isolado, é um padrão: Jeová trata com constância quem se aproxima dele com fé, mesmo gente de fora do povo escolhido.
 
@@ -49,7 +50,7 @@ Pra Laurinha: Jeová cuida de quem confia nele.
 ```
 Resposta: (a) Uma nação cananeia chamada heveus, moradora da cidade murada de Gibeão, protegida e com muitos soldados (parágrafo 3). (b) Porque perceberam que lutar contra Israel não fazia sentido: viram que Jeová estava lutando pelo povo dele e sabiam que ele tinha prometido expulsar todos os cananeus daquela terra (Êxodo 34:11; Josué 9:24). Por isso enviaram um grupo de homens até Josué, que estava em Gilgal, pra tentar fazer um acordo de paz (parágrafo 3).
 
-Complementar 1: A nota da própria Bíblia esclarece um detalhe que o texto principal não diz: o grupo que negociou com Josué provavelmente incluía homens de mais três cidades heveias, além de Gibeão, “Quefira, Beerote e Quiriate-Jearim” (Josué 9:17). O medo de Israel não era de um povo isolado, era de uma aliança inteira decidindo se arriscar pela paz.
+Complementar 1: A nota "a" do próprio artigo, que não é nota da Bíblia, esclarece um detalhe que o texto principal não diz: pelo visto, esse grupo incluía homens de Gibeão e de três outras cidades dos heveus, “Quefira, Beerote e Quiriate-Jearim” (Josué 9:17). O medo de Israel não era de um povo isolado, era de uma aliança inteira decidindo se arriscar pela paz.
 
 Complementar 2: Jeová tinha avisado com todas as letras o que ia acontecer com os cananeus: “Expulsarei de diante de você os amorreus, os cananeus, os hititas, os perizeus, os heveus e os jebuseus” (Êxodo 34:11). Os gibeonitas eram justamente heveus, um dos povos nomeados na própria sentença. Ler essa lista e ainda assim decidir negociar em vez de lutar mostra que eles levaram a palavra de Jeová mais a sério do que os vizinhos que escolheram guerra.
 
@@ -113,7 +114,7 @@ O que aprendemos nesse trecho: séculos depois, um rei quebra o pacto e comete u
 **8. Qual crime o rei Saul cometeu contra os gibeonitas?**
 
 ```
-Resposta: O rei Saul, “no seu zelo pelo povo de Israel e de Judá” (2 Samuel 21:2), se virou contra os gibeonitas que moravam em Israel e tentou eliminá-los totalmente. A Bíblia não diz especificamente por que ele fez isso, embora alguns estudiosos sugiram que ele se deixou levar por um espírito nacionalista. O resultado foi que muitos gibeonitas foram assassinados (2 Samuel 21:1, 2). Saul quebrou um acordo de paz que já existia há um longo tempo entre Israel e os gibeonitas, um pacto que Josué e a assembleia tinham jurado por Jeová gerações antes (parágrafo 8).
+Resposta: O rei Saul, “no seu zelo pelo povo de Israel e de Judá” (2 Samuel 21:2), se virou contra os gibeonitas que moravam em Israel e tentou eliminá-los totalmente. A nota "b" do artigo registra que a Bíblia não diz especificamente por que Saul cometeu esse crime, e que alguns estudiosos sugerem que ele se deixou levar por um espírito nacionalista. O resultado foi que muitos gibeonitas foram assassinados (2 Samuel 21:1, 2). Saul quebrou um acordo de paz que já existia há um longo tempo entre Israel e os gibeonitas, um pacto que Josué e a assembleia tinham jurado por Jeová gerações antes (parágrafo 8).
 
 Complementar 1: O detalhe mais grave desse crime é o "por Jeová" do juramento original (Josué 9:19). Saul não quebrou só um acordo político, quebrou uma promessa que carregava o nome de Deus. Trair uma palavra dada em nome de Jeová é diferente de trair qualquer outro compromisso, porque envolve a reputação dele, não só a de quem prometeu.
 
