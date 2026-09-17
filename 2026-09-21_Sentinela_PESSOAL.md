@@ -2,8 +2,9 @@
 
 > **Sentinela de Estudo** · Semana de 21 a 27 de setembro de 2026
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-julho-2026/Voc%C3%AA-est%C3%A1-conhecendo-a-Jeov%C3%A1-cada-vez-melhor/)
+> Publicação: A Sentinela, edição de estudo de julho de 2026, páginas 14-19 (citação oficial da fonte: w26 julho pp. 14-19)
 
-**Texto-base:** 1 Crônicas 28:9 (TNM): “Conheça o Deus do seu pai e sirva-o de coração pleno.” [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=13028009)
+**Texto-base:** “Conheça o Deus do seu pai e sirva-o de coração pleno.” (1 CRÔ. 28:9) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=13028009)
 
 @CANTICO 12 | Nosso grandioso Deus, Jeová
 @OBJETIVO Aprender o que significa conhecer a Jeová, por que devemos conhecê-lo cada vez melhor e como podemos fazer isso.
@@ -111,7 +112,7 @@ Pra Laurinha: Conhecer Jeová ajuda a confiar.
 **7. O que pode acontecer com quem já serve a Jeová há muitos anos?**
 
 ```
-Resposta: Pode acontecer de a pessoa deixar de se esforçar tanto pra aprender sobre Jeová como fazia no começo. Lembra que, quando você começou a estudar a Bíblia, fazia muito esforço pra aprender sobre Jeová? Com o tempo, quando lemos a Bíblia sozinhos ou nas reuniões, pode ser que a gente se concentre só em encontrar pontos úteis pro dia a dia ou pra ajudar outras pessoas. A Bíblia incentiva isso (2 Timóteo 3:16, 17), mas ela também revela muitos detalhes sobre o próprio Autor (Salmo 25:8-10), e por isso nunca devemos ficar tão preocupados em achar aplicação prática a ponto de esquecer de perguntar: "O que isso me ensina sobre Jeová Deus?"
+Resposta: Pode acontecer de a pessoa deixar de se esforçar tanto pra aprender sobre Jeová como fazia no começo. Lembra que, quando você começou a estudar a Bíblia, fazia muito esforço pra aprender sobre Jeová? Com o tempo, quando lemos a Bíblia sozinhos ou nas reuniões, pode ser que a gente se concentre só em encontrar pontos úteis pro dia a dia ou pra ajudar outras pessoas. A Bíblia incentiva isso (2 Timóteo 3:16, 17), mas ela também revela muitos detalhes sobre o próprio Autor (Salmo 25:8-10), e por isso nunca devemos ficar tão preocupados em achar aplicação prática a ponto de esquecer de perguntar: "O que isso me ensina sobre Jeová Deus?" A nota "a" do artigo diz: "Na Tradução do Novo Mundo, veja a pergunta 20 da seção "Uma Introdução à Palavra de Deus".".
 
 Complementar 1: Repare que o problema não é usar a Bíblia pra achar dicas práticas, isso é exatamente o que 2 Timóteo 3:16, 17 recomenda. O problema é parar aí. É possível ler o mesmo capítulo por anos, tirando lição prática atrás de lição prática, e nunca parar pra perguntar quem é a Pessoa por trás daquelas palavras.
 
@@ -163,7 +164,7 @@ O que aprendemos nesse trecho: três caminhos concretos pra continuar conhecendo
 **11. Como você aprendeu sobre Jeová?**
 
 ```
-Resposta: Pra muita gente, foram os pais, usando histórias da Bíblia ou a criação pra ajudar a conhecer a personalidade de Jeová. Pra outros, foi uma Testemunha de Jeová que ofereceu um estudo, usando uma publicação, como o livro Seja Feliz para Sempre!, pra ajudar a pessoa a ver as maravilhosas qualidades de Deus nos relatos da Bíblia e na criação (Neemias 8:8; Atos 14:17). Mas precisamos continuar aprendendo sobre Jeová, e é isso que o resto do estudo mostra como fazer.
+Resposta: Pra muita gente, foram os pais, usando histórias da Bíblia ou a criação pra ajudar a conhecer a personalidade de Jeová. Pra outros, foi uma Testemunha de Jeová que ofereceu um estudo, usando uma publicação, como o livro Seja Feliz para Sempre!, pra ajudar a pessoa a ver as maravilhosas qualidades de Deus nos relatos da Bíblia e na criação (Neemias 8:8; Atos 14:17). Mas precisamos continuar aprendendo sobre Jeová, e é isso que o resto do estudo mostra como fazer. A nota "b" do artigo diz: "Veja os pontos 5-7 na lição 7 do livro Seja Feliz para Sempre!.".
 
 Complementar 1: O detalhe interessante é que os dois caminhos citados, pais e instrutor bíblico, usam basicamente a mesma ferramenta: histórias reais e a criação, não uma lista de doutrinas decoradas. Isso mostra que Jeová projetou o conhecimento sobre ele pra ser transmitido de forma viva, através de relato e experiência, não só de definição.
 
@@ -258,13 +259,13 @@ Resposta: De três formas. Lendo e estudando a Bíblia, procurando o que cada re
 
 ## Imagens
 
-@IMG 12 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_1_lg.jpg | Ebede-Meleque e outros homens usando uma corda para tirar Jeremias da cisterna. Alguns homens armados ficam de guarda. | Com coragem, Ebede-Meleque tira Jeremias de uma cisterna
+@IMG 12 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_1_lg.jpg | Ebede-Meleque e outros homens usando uma corda para tirar Jeremias da cisterna. Alguns homens armados ficam de guarda. | Com coragem, Ebede-Meleque tira Jeremias de uma cisterna (Veja os parágrafos 12-13.)
 Comentando a imagem: vários homens puxam Jeremias de dentro de uma cisterna usando uma corda, enquanto outros ficam de guarda com lanças, prontos pra reagir se alguém tentasse impedir o resgate. Ligada aos parágrafos 12 e 13, a cena mostra Ebede-Meleque não só reconhecendo a injustiça contra Jeremias, mas agindo pra corrigi-la, mesmo sendo um estrangeiro numa terra que não era a dele. A lição prática é que perceber as qualidades de Jeová nos relatos bíblicos, como a disposição de ajudar que aparece aqui, também mostra o que Jeová valoriza: coragem para fazer o certo, mesmo quando é arriscado.
 
-@IMG 15 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_2_lg.jpg | Uma irmã na varanda de sua casa, em uma cidade grande, regando as plantas e admirando um beija-flor que está se alimentando. | Aprenda mais sobre Jeová meditando profundamente nas coisas que ele criou
+@IMG 15 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_2_lg.jpg | Uma irmã na varanda de sua casa, em uma cidade grande, regando as plantas e admirando um beija-flor que está se alimentando. | Aprenda mais sobre Jeová meditando profundamente nas coisas que ele criou (Veja o parágrafo 15.)
 Comentando a imagem: uma irmã rega plantas na varanda do apartamento e para pra admirar um beija-flor se alimentando bem perto dela. Ligada ao parágrafo 15 e ao exemplo de Patrick, a cena mostra que dá pra observar a criação mesmo morando numa cidade grande, sem precisar de mata ou reserva natural. A lição prática é que meditar sobre Jeová não depende do lugar onde você mora, depende de parar o suficiente pra reparar no que já está bem na sua frente.
 
-@IMG 16 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_3_lg.jpg | Conjunto de imagens: Um irmão lembrando de uma ocasião em que recebeu a ajuda de Jeová. 1. Ele fica ansioso com uma parte que vai ter que fazer na reunião e ora sobre isso. 2. Ele consegue fazer bem a sua parte na reunião. | Aprenda mais sobre Jeová pensando em tudo o que ele já fez por você | Um irmão que fica muito nervoso quando precisa fazer discursos pensa em como Jeová o ajudou a cumprir sua designação na reunião do meio de semana.
+@IMG 16 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_3_lg.jpg | Conjunto de imagens: Um irmão lembrando de uma ocasião em que recebeu a ajuda de Jeová. 1. Ele fica ansioso com uma parte que vai ter que fazer na reunião e ora sobre isso. 2. Ele consegue fazer bem a sua parte na reunião. | Aprenda mais sobre Jeová pensando em tudo o que ele já fez por você (Veja o parágrafo 16.) | Um irmão que fica muito nervoso quando precisa fazer discursos pensa em como Jeová o ajudou a cumprir sua designação na reunião do meio de semana.
 Comentando a imagem: em duas cenas lado a lado, um irmão fica ansioso antes de uma parte na reunião e ora sobre isso, depois consegue fazer bem a designação. Ligada ao parágrafo 16 e ao exemplo de Maria, a sequência mostra alguém aplicando o mesmo método dela, parar depois do fato e reconhecer que foi Jeová quem ajudou. A lição prática é guardar esses momentos de ajuda na memória, porque é lembrando deles depois que a nossa confiança em Jeová realmente cresce.
 
 @CANTICO 28 | Quem pode ser amigo de Jeová?

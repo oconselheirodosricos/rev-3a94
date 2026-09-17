@@ -2,8 +2,9 @@
 
 > **Sentinela de Estudo** · Semana de 28 de setembro a 4 de outubro de 2026
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-julho-2026/Ajude-outros-a-conhecer-a-Jeov%C3%A1/)
+> Publicação: A Sentinela, edição de estudo de julho de 2026, páginas 20-25 (citação oficial da fonte: w26 julho pp. 20-25)
 
-**Texto-base:** João 17:3 (TNM): “Isto significa vida eterna: que conheçam a ti, o único Deus verdadeiro.” [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=43017003)
+**Texto-base:** “Isto significa vida eterna: que conheçam a ti, o único Deus verdadeiro.” (JOÃO 17:3) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=43017003)
 
 @CANTICO 79 | Ensine-os a se manter firmes
 @OBJETIVO Ver como você pode ajudar seu estudante da Bíblia a conhecer a Jeová, incluindo as qualidades dele e o que agrada ou não a ele.
@@ -135,7 +136,7 @@ O livro *Seja Feliz para Sempre!* tem muitas perguntas que ajudam os estudantes 
 **9-10. (a) O que vai ajudar o estudante a tirar mais proveito da sua leitura da Bíblia? (Tiago 5:11) (b) Dê um exemplo de como um relato da Bíblia pode nos ensinar o que agrada e o que desagrada a Jeová.**
 
 ```
-Resposta: (a) Se perguntar, a cada relato lido, "Por que Jeová incluiu esse relato em sua Palavra? Que qualidades de Jeová eu consigo aprender?" (pergunta sugerida pelo próprio artigo). O parágrafo 9 mostra Tiago fazendo exatamente isso com a história de Jó: ele destacou não só a perseverança de Jó, mas também qualidades de Jeová, como a compaixão e a misericórdia (Tiago 5:11). (b) O parágrafo 10 dá o exemplo de Daniel na cova dos leões: o estudante pode se perguntar "Por que Jeová salvou Daniel? De acordo com esse relato, o que deixa Jeová feliz?" (Daniel 6:10, 22), e também "O que aconteceu com os homens que acusaram Daniel? Com base nessa história, o que desagrada a Jeová?" (Daniel 6:4, 5, 24).
+Resposta: (a) Se perguntar, a cada relato lido, "Por que Jeová incluiu esse relato em sua Palavra? Que qualidades de Jeová eu consigo aprender?" (pergunta sugerida pelo próprio artigo). O parágrafo 9 mostra Tiago fazendo exatamente isso com a história de Jó: ele destacou não só a perseverança de Jó, mas também qualidades de Jeová, como a compaixão e a misericórdia (Tiago 5:11). (b) O parágrafo 10 dá o exemplo de Daniel na cova dos leões: o estudante pode se perguntar "Por que Jeová salvou Daniel? De acordo com esse relato, o que deixa Jeová feliz?" (Daniel 6:10, 22), e também "O que aconteceu com os homens que acusaram Daniel? Com base nessa história, o que desagrada a Jeová?" (Daniel 6:4, 5, 24). A nota "a" do artigo diz: "Na lição 5 do livro Seja Feliz para Sempre!, no quadro "Tente o Seguinte", o estudante é incentivado a ter este alvo: "Começar a ler a Bíblia todos os dias usando o quadro ‘Comece sua leitura da Bíblia’."".
 
 Complementar 1: Tiago não inventou uma lição nova em cima do relato de Jó; ele extraiu, de dentro da própria história, duas qualidades que já estavam ali o tempo todo. Isso é o modelo: a personalidade de Jeová não precisa ser adicionada ao relato bíblico, ela já está lá dentro, e a pergunta certa só revela o que já estava escrito.
 Complementar 2: Repare que o mesmo relato de Daniel serve pras duas metades da pergunta 10: o que agrada Jeová (salvar quem confia nele) e o que desagrada (a inveja calculada dos acusadores, que planejaram a queda de Daniel por despeito). Um único relato bíblico quase sempre ensina os dois lados ao mesmo tempo, e vale a pena procurar os dois, não só o lado óbvio.

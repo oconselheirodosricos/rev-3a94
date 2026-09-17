@@ -2,8 +2,9 @@
 
 > Reunião: Sentinela · Semana de estudo: 14 a 20 de setembro de 2026
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-julho-2026/Encontre-consolo-no-livro-de-Isa%C3%ADas/)
+> Publicação: A Sentinela, edição de estudo de julho de 2026, páginas 8-13 (citação oficial da fonte: w26 julho pp. 8-13)
 
-**Texto-base:** Isaías 66:12, 13 (TNM): Jeová diz: “Assim como a mãe consola o seu filho, assim continuarei a consolar vocês.” [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=23066013)
+**Texto-base:** “Assim diz Jeová: . . . ‘Assim como a mãe consola o seu filho, assim continuarei a consolar vocês.’” (ISA. 66:12, 13) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=23066012-23066013)
 
 @CANTICO 41 | Escuta minha oração
 @OBJETIVO Ver que meditar no livro de Isaías pode nos consolar e animar quando nos sentimos tristes ou desanimados.
@@ -72,7 +73,7 @@ Resposta: Ele promete conduzir quem está andando como cego num caminho que não
 
 ```
 O que a pergunta quer dizer: Que garantia continua valendo mesmo quando a mudança já começou.
-O que o texto nos mostra: Podemos ter certeza de que Jeová continua do nosso lado. Joseph contou: "Nós vimos de perto a ajuda e o amor de Jeová durante esse período de mudanças." Jeová promete: “o meu amor leal não será removido de você” (Isaías 54:10).
+O que o texto nos mostra: Podemos ter certeza de que Jeová continua do nosso lado. Joseph contou: "Nós vimos de perto a ajuda e o amor de Jeová durante esse período de mudanças." Jeová promete: “o meu amor leal não será removido de você” (Isaías 54:10). A nota "a" do artigo diz: "Essa letra é do clipe musical Estou com Jeová.".
 Como aplicar na nossa vida: A ajuda de Jeová geralmente tem endereço: a congregação, alguém que liga, alguém que oferece. Quem, na sua congregação, poderia precisar dessa ajuda concreta esta semana?
 Resposta: Que Jeová continua do nosso lado, geralmente por meio de irmãos concretos, como Joseph experimentou depois de sair de Betel (Isaías 54:10; 58:11).
 ```
@@ -188,13 +189,13 @@ Resposta: Duas promessas que se completam. Isaías 25:8 garante o fim da morte e
 
 ## Imagens
 
-@IMG 5 | https://cms-imgp.jw-cdn.org/img/p/2026483/T/art/2026483_T_cnt_1_lg.jpg | Conjunto de imagens: Um casal sendo beneficiado pela promessa de Deus encontrada em Isaías 42:16, que diz: ‘Num caminho que não conhece . . . , não vou abandonar você.’ 1. O casal encaixota suas coisas para a mudança. 2. Eles são recebidos com carinho por uma família da nova congregação deles. | Mesmo quando mudanças inesperadas acontecem, Jeová nunca vai abandonar você | Um casal que saiu de Betel é bem recebido em sua nova congregação.
+@IMG 5 | https://cms-imgp.jw-cdn.org/img/p/2026483/T/art/2026483_T_cnt_1_lg.jpg | Conjunto de imagens: Um casal sendo beneficiado pela promessa de Deus encontrada em Isaías 42:16, que diz: ‘Num caminho que não conhece . . . , não vou abandonar você.’ 1. O casal encaixota suas coisas para a mudança. 2. Eles são recebidos com carinho por uma família da nova congregação deles. | Mesmo quando mudanças inesperadas acontecem, Jeová nunca vai abandonar você (Veja o parágrafo 5.) | Um casal que saiu de Betel é bem recebido em sua nova congregação.
 Comentando a imagem: a sequência mostra o mesmo casal em dois momentos, primeiro encaixotando os próprios pertences pra mudança, depois sendo recebido de braços abertos por uma família da nova congregação. Ligada ao parágrafo 5 e a Isaías 42:16, a nota de rodapé da fonte identifica os dois como um casal que saiu de Betel, e a cena mostra o "caminho desconhecido" virando concreto: uma sala de estar, um sofá, gente sorrindo na porta. A lição prática é que a promessa de Jeová de não abandonar geralmente chega com rosto e endereço, por meio da própria congregação que recebe quem chega.
 
-@IMG 11 | https://cms-imgp.jw-cdn.org/img/p/2026483/T/art/2026483_T_cnt_2_lg.jpg | Conjunto de imagens: Um irmão sendo beneficiado pela garantia encontrada em Isaías 38:17, que diz: “Lançaste todos os meus pecados atrás de ti.” 1. O irmão está muito triste por causa de um erro que cometeu no passado. 2. Mais tarde, ele está feliz comentando durante a Escola do Serviço de Pioneiro. | Quando Jeová olha para nós, ele não se concentra nos nossos erros | Um irmão deixa o seu erro no passado e está feliz cursando a Escola do Serviço de Pioneiro.
+@IMG 11 | https://cms-imgp.jw-cdn.org/img/p/2026483/T/art/2026483_T_cnt_2_lg.jpg | Conjunto de imagens: Um irmão sendo beneficiado pela garantia encontrada em Isaías 38:17, que diz: “Lançaste todos os meus pecados atrás de ti.” 1. O irmão está muito triste por causa de um erro que cometeu no passado. 2. Mais tarde, ele está feliz comentando durante a Escola do Serviço de Pioneiro. | Quando Jeová olha para nós, ele não se concentra nos nossos erros (Veja o parágrafo 11.) | Um irmão deixa o seu erro no passado e está feliz cursando a Escola do Serviço de Pioneiro.
 Comentando a imagem: na primeira cena o irmão está sozinho, cabisbaixo, claramente pesando um erro do passado; na segunda, o mesmo irmão aparece sorrindo, de mão levantada, comentando numa sala de aula da Escola do Serviço de Pioneiro. Ligada ao parágrafo 11 e a Isaías 38:17, a nota de rodapé confirma que é o mesmo homem, agora livre do peso que carregava. A lição prática é visual e direta: o erro do passado não impediu o avanço espiritual dele, porque ele aceitou que Jeová realmente jogou aquele pecado pra trás de si.
 
-@IMG 14 | https://cms-imgp.jw-cdn.org/img/p/2026483/T/art/2026483_T_cnt_3_lg.jpg | Conjunto de imagens: Uma irmã sendo beneficiada pela promessa de Deus encontrada em Isaías 26:19, que diz: “Os seus mortos viverão.” 1. Ela está muito triste sentada sozinha na cama de sua filhinha que faleceu, segurando um porta-retratos. 2. Ela está feliz abraçando sua filha, que foi ressuscitada. | A esperança de vermos de novo as pessoas que perdemos é uma certeza |
+@IMG 14 | https://cms-imgp.jw-cdn.org/img/p/2026483/T/art/2026483_T_cnt_3_lg.jpg | Conjunto de imagens: Uma irmã sendo beneficiada pela promessa de Deus encontrada em Isaías 26:19, que diz: “Os seus mortos viverão.” 1. Ela está muito triste sentada sozinha na cama de sua filhinha que faleceu, segurando um porta-retratos. 2. Ela está feliz abraçando sua filha, que foi ressuscitada. | A esperança de vermos de novo as pessoas que perdemos é uma certeza (Veja o parágrafo 14.)
 Comentando a imagem: a primeira cena mostra a mãe sozinha, sentada na cama vazia da filha, com um porta-retratos nas mãos, o silêncio do quarto quase visível; a segunda mostra o reencontro, a mãe abraçando a mesma menina, já ressuscitada. Ligada ao parágrafo 14 e a Isaías 26:19, a legenda da fonte já entrega a leitura da cena: "A esperança de vermos de novo as pessoas que perdemos é uma certeza". Diferente das outras duas imagens deste estudo, esta não tem nota de rodapé com descrição na fonte, então o resto do comentário fica no que a própria cena mostra. A lição prática é que a esperança da ressurreição não é conceito abstrato, é literalmente o quarto vazio virando abraço de novo.
 
 @CANTICO 3 | Jeová, minha força e esperança

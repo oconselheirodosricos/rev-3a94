@@ -4,7 +4,7 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-julho-2026/O-que-aprendemos-com-os-gibeonitas/)
 > Publicação: A Sentinela, edição de estudo de julho de 2026, páginas 2-7 (citação oficial da fonte: w26 julho pp. 2-7)
 
-**Texto-base:** Josué 10:1 (TNM): “Os habitantes de Gibeão tinham feito paz com Israel e permaneciam entre eles.” [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=06010001)
+**Texto-base:** “Os habitantes de Gibeão tinham feito paz com Israel e permaneciam entre eles.” (JOS. 10:1) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=06010001)
 
 @CANTICO 88 | Os teus caminhos quero entender
 @OBJETIVO Identificar lições que podemos aprender com os gibeonitas e com a maneira de Jeová lidar com eles.
@@ -46,7 +46,7 @@ Resposta: Porque, apesar de aparecerem pouco, os relatos sobre os gibeonitas atr
 
 ```
 O que a pergunta quer dizer: De onde vinham os gibeonitas e o que os levou a buscar a paz com Israel.
-O que o texto nos mostra: Eram uma nação cananeia chamada heveus, moradora da cidade murada de Gibeão (parágrafo 3). A nota "a" do artigo acrescenta que, pelo visto, esse grupo incluía homens de Gibeão e de três outras cidades dos heveus, “Quefira, Beerote e Quiriate-Jearim” (Josué 9:17). Perceberam que lutar contra Israel não fazia sentido porque viram que Jeová estava lutando pelo povo dele e sabiam que ele tinha prometido expulsar todos os cananeus daquela terra: “Expulsarei de diante de você os amorreus, os cananeus, os hititas, os perizeus, os heveus e os jebuseus” (Êxodo 34:11).
+O que o texto nos mostra: Eram uma nação cananeia chamada heveus, moradora da cidade murada de Gibeão (parágrafo 3). A nota "a" do artigo diz: "Pelo visto, esse grupo incluía homens de Gibeão e de três outras cidades dos heveus: Quefira, Beerote e Quiriate-Jearim." (Josué 9:17). Perceberam que lutar contra Israel não fazia sentido porque viram que Jeová estava lutando pelo povo dele e sabiam que ele tinha prometido expulsar todos os cananeus daquela terra: “Expulsarei de diante de você os amorreus, os cananeus, os hititas, os perizeus, os heveus e os jebuseus” (Êxodo 34:11).
 Como aplicar na nossa vida: Eles levaram a palavra de Jeová mais a sério do que os vizinhos que escolheram guerra, porque reconheceram a força dela mesmo estando do lado que seria expulso. Você já mudou uma decisão porque levou a sério algo que Jeová disse?
 Resposta: Uma nação cananeia (os heveus) que morava em Gibeão, e quis a paz porque reconheceu que Jeová estava lutando por Israel e cumpriria a promessa de expulsar os cananeus (Êxodo 34:11; Josué 9:24).
 ```
@@ -95,7 +95,7 @@ O que aprendemos nesse trecho: séculos depois, um rei quebra o pacto e comete u
 
 ```
 O que a pergunta quer dizer: O que Saul fez contra o povo que Israel tinha jurado proteger.
-O que o texto nos mostra: O rei Saul, “no seu zelo pelo povo de Israel e de Judá” (2 Samuel 21:2), se virou contra os gibeonitas e tentou eliminá-los totalmente, resultando na morte de muitos deles. Ele quebrou um acordo de paz que já existia há um longo tempo entre Israel e os gibeonitas (2 Samuel 21:1, 2). A nota "b" do artigo registra que a Bíblia não diz especificamente por que Saul cometeu esse crime, e que alguns estudiosos sugerem que ele se deixou levar por um espírito nacionalista.
+O que o texto nos mostra: O rei Saul, “no seu zelo pelo povo de Israel e de Judá” (2 Samuel 21:2), se virou contra os gibeonitas e tentou eliminá-los totalmente, resultando na morte de muitos deles. Ele quebrou um acordo de paz que já existia há um longo tempo entre Israel e os gibeonitas (2 Samuel 21:1, 2). A nota "b" do artigo diz: "A Bíblia não diz especificamente por que Saul cometeu esse crime. Alguns estudiosos sugerem que ele se deixou levar por um espírito nacionalista.".
 Como aplicar na nossa vida: A Bíblia não explica com certeza o motivo de Saul, mas a injustiça não deixa de ser injustiça só porque o motivo não é totalmente claro. Você já se pegou justificando um erro só porque não entendia bem o motivo por trás dele?
 Resposta: Ele tentou eliminar totalmente os gibeonitas, quebrando um acordo de paz que já existia há gerações entre eles e Israel (2 Samuel 21:1, 2).
 ```
@@ -207,10 +207,10 @@ Resposta: Estando dispostos a fazer sacrifícios reais por Jeová porque o amamo
 
 ## Imagens
 
-@IMG 4 | https://cms-imgp.jw-cdn.org/img/p/2026482/univ/art/2026482_univ_cnt_1_lg.jpg | Um grupo de homens gibeonitas ajoelhados, apelando para Josué e outros soldados. Os gibeonitas mostram suas roupas gastas e seus odres velhos de vinho. | Os gibeonitas enganaram Josué para fazer um acordo de paz com os israelitas
+@IMG 4 | https://cms-imgp.jw-cdn.org/img/p/2026482/univ/art/2026482_univ_cnt_1_lg.jpg | Um grupo de homens gibeonitas ajoelhados, apelando para Josué e outros soldados. Os gibeonitas mostram suas roupas gastas e seus odres velhos de vinho. | Os gibeonitas enganaram Josué para fazer um acordo de paz com os israelitas (Veja o parágrafo 4.)
 Comentando a imagem: os gibeonitas ajoelhados diante de Josué e dos soldados israelitas, mostrando as roupas gastas e os odres remendados como prova encenada de uma longa viagem. É o momento do engano descrito no parágrafo 4: o gesto de se ajoelhar reforça a encenação de humildade e cansaço, a mesma que convenceu os israelitas a prometer paz sem consultar a Jeová. A lição prática é lembrar que aparência convincente não substitui oração antes de uma decisão importante.
 
-@IMG 7 | https://cms-imgp.jw-cdn.org/img/p/2026482/univ/art/2026482_univ_cnt_2_lg.jpg | Conjunto de imagens: Pessoas realizando tarefas humildes. 1. Um homem gibeonita carregando um jarro de água. 2. Um irmão idoso cuidando do jardim do Salão do Reino. | Igual aos gibeonitas, queremos ser humildes e estar dispostos a fazer qualquer serviço para Jeová
+@IMG 7 | https://cms-imgp.jw-cdn.org/img/p/2026482/univ/art/2026482_univ_cnt_2_lg.jpg | Conjunto de imagens: Pessoas realizando tarefas humildes. 1. Um homem gibeonita carregando um jarro de água. 2. Um irmão idoso cuidando do jardim do Salão do Reino. | Igual aos gibeonitas, queremos ser humildes e estar dispostos a fazer qualquer serviço para Jeová (Veja o parágrafo 7.)
 Comentando a imagem: duas cenas lado a lado, ligando o passado ao presente. De um lado, um gibeonita carrega um jarro de água, a mesma tarefa humilde aceita em Josué 9:27; do outro, um irmão idoso hoje cuida do jardim de um Salão do Reino, sem status nem destaque. Ligada ao parágrafo 7, a imagem mostra que o tipo de tarefa mudou, mas a disposição de servir sem cobrar reconhecimento continua a mesma.
 
 @CANTICO 148 | Jeová é nosso Salvador

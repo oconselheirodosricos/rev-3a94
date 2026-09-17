@@ -4,7 +4,7 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-julho-2026/O-que-aprendemos-com-os-gibeonitas/)
 > Publicação: A Sentinela, edição de estudo de julho de 2026, páginas 2-7 (citação oficial da fonte: w26 julho pp. 2-7)
 
-**Texto-base:** Josué 10:1 (TNM): “Os habitantes de Gibeão tinham feito paz com Israel e permaneciam entre eles.” [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=06010001)
+**Texto-base:** “Os habitantes de Gibeão tinham feito paz com Israel e permaneciam entre eles.” (JOS. 10:1) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=06010001)
 
 @CANTICO 88 | Os teus caminhos quero entender
 @OBJETIVO Identificar lições que podemos aprender com os gibeonitas e com a maneira de Jeová lidar com eles.
@@ -48,9 +48,9 @@ Pra Laurinha: Jeová cuida de quem confia nele.
 **3. (a) Quem eram os gibeonitas? (b) Por que eles quiseram fazer um acordo de paz com Israel?**
 
 ```
-Resposta: (a) Uma nação cananeia chamada heveus, moradora da cidade murada de Gibeão, protegida e com muitos soldados (parágrafo 3). (b) Porque perceberam que lutar contra Israel não fazia sentido: viram que Jeová estava lutando pelo povo dele e sabiam que ele tinha prometido expulsar todos os cananeus daquela terra (Êxodo 34:11; Josué 9:24). Por isso enviaram um grupo de homens até Josué, que estava em Gilgal, pra tentar fazer um acordo de paz (parágrafo 3).
+Resposta: (a) Uma nação cananeia chamada heveus, moradora da cidade murada de Gibeão, protegida e com muitos soldados (parágrafo 3). (b) Porque perceberam que lutar contra Israel não fazia sentido: viram que Jeová estava lutando pelo povo dele e sabiam que ele tinha prometido expulsar todos os cananeus daquela terra (Êxodo 34:11; Josué 9:24). Por isso enviaram um grupo de homens até Josué, que estava em Gilgal, pra tentar fazer um acordo de paz (parágrafo 3). A nota "a" do artigo diz: "Pelo visto, esse grupo incluía homens de Gibeão e de três outras cidades dos heveus: Quefira, Beerote e Quiriate-Jearim." (Josué 9:17).
 
-Complementar 1: A nota "a" do próprio artigo, que não é nota da Bíblia, esclarece um detalhe que o texto principal não diz: pelo visto, esse grupo incluía homens de Gibeão e de três outras cidades dos heveus, “Quefira, Beerote e Quiriate-Jearim” (Josué 9:17). O medo de Israel não era de um povo isolado, era de uma aliança inteira decidindo se arriscar pela paz.
+Complementar 1: A nota "a" do próprio artigo, que não é nota da Bíblia, esclarece um detalhe que o texto principal não diz: "Pelo visto, esse grupo incluía homens de Gibeão e de três outras cidades dos heveus: Quefira, Beerote e Quiriate-Jearim." (Josué 9:17) O medo de Israel não era de um povo isolado, era de uma aliança inteira decidindo se arriscar pela paz.
 
 Complementar 2: Jeová tinha avisado com todas as letras o que ia acontecer com os cananeus: “Expulsarei de diante de você os amorreus, os cananeus, os hititas, os perizeus, os heveus e os jebuseus” (Êxodo 34:11). Os gibeonitas eram justamente heveus, um dos povos nomeados na própria sentença. Ler essa lista e ainda assim decidir negociar em vez de lutar mostra que eles levaram a palavra de Jeová mais a sério do que os vizinhos que escolheram guerra.
 
@@ -114,7 +114,7 @@ O que aprendemos nesse trecho: séculos depois, um rei quebra o pacto e comete u
 **8. Qual crime o rei Saul cometeu contra os gibeonitas?**
 
 ```
-Resposta: O rei Saul, “no seu zelo pelo povo de Israel e de Judá” (2 Samuel 21:2), se virou contra os gibeonitas que moravam em Israel e tentou eliminá-los totalmente. A nota "b" do artigo registra que a Bíblia não diz especificamente por que Saul cometeu esse crime, e que alguns estudiosos sugerem que ele se deixou levar por um espírito nacionalista. O resultado foi que muitos gibeonitas foram assassinados (2 Samuel 21:1, 2). Saul quebrou um acordo de paz que já existia há um longo tempo entre Israel e os gibeonitas, um pacto que Josué e a assembleia tinham jurado por Jeová gerações antes (parágrafo 8).
+Resposta: O rei Saul, “no seu zelo pelo povo de Israel e de Judá” (2 Samuel 21:2), se virou contra os gibeonitas que moravam em Israel e tentou eliminá-los totalmente. A nota "b" do artigo diz: "A Bíblia não diz especificamente por que Saul cometeu esse crime. Alguns estudiosos sugerem que ele se deixou levar por um espírito nacionalista.". O resultado foi que muitos gibeonitas foram assassinados (2 Samuel 21:1, 2). Saul quebrou um acordo de paz que já existia há um longo tempo entre Israel e os gibeonitas, um pacto que Josué e a assembleia tinham jurado por Jeová gerações antes (parágrafo 8).
 
 Complementar 1: O detalhe mais grave desse crime é o "por Jeová" do juramento original (Josué 9:19). Saul não quebrou só um acordo político, quebrou uma promessa que carregava o nome de Deus. Trair uma palavra dada em nome de Jeová é diferente de trair qualquer outro compromisso, porque envolve a reputação dele, não só a de quem prometeu.
 
@@ -257,10 +257,10 @@ Resposta: Estando dispostos a fazer sacrifícios reais por Jeová porque o amamo
 
 ## Imagens
 
-@IMG 4 | https://cms-imgp.jw-cdn.org/img/p/2026482/univ/art/2026482_univ_cnt_1_lg.jpg | Um grupo de homens gibeonitas ajoelhados, apelando para Josué e outros soldados. Os gibeonitas mostram suas roupas gastas e seus odres velhos de vinho. | Os gibeonitas enganaram Josué para fazer um acordo de paz com os israelitas
+@IMG 4 | https://cms-imgp.jw-cdn.org/img/p/2026482/univ/art/2026482_univ_cnt_1_lg.jpg | Um grupo de homens gibeonitas ajoelhados, apelando para Josué e outros soldados. Os gibeonitas mostram suas roupas gastas e seus odres velhos de vinho. | Os gibeonitas enganaram Josué para fazer um acordo de paz com os israelitas (Veja o parágrafo 4.)
 Comentando a imagem: os gibeonitas ajoelhados diante de Josué e dos soldados israelitas, mostrando as roupas gastas e os odres de vinho remendados como prova encenada de uma longa viagem. É o momento exato do engano descrito no parágrafo 4: o gesto de se ajoelhar reforça a encenação de humildade e cansaço, a mesma que convenceu os israelitas a prometer paz sem consultar a Jeová. A lição prática é lembrar que aparência convincente não substitui oração antes de uma decisão importante.
 
-@IMG 7 | https://cms-imgp.jw-cdn.org/img/p/2026482/univ/art/2026482_univ_cnt_2_lg.jpg | Conjunto de imagens: Pessoas realizando tarefas humildes. 1. Um homem gibeonita carregando um jarro de água. 2. Um irmão idoso cuidando do jardim do Salão do Reino. | Igual aos gibeonitas, queremos ser humildes e estar dispostos a fazer qualquer serviço para Jeová
+@IMG 7 | https://cms-imgp.jw-cdn.org/img/p/2026482/univ/art/2026482_univ_cnt_2_lg.jpg | Conjunto de imagens: Pessoas realizando tarefas humildes. 1. Um homem gibeonita carregando um jarro de água. 2. Um irmão idoso cuidando do jardim do Salão do Reino. | Igual aos gibeonitas, queremos ser humildes e estar dispostos a fazer qualquer serviço para Jeová (Veja o parágrafo 7.)
 Comentando a imagem: duas cenas lado a lado, ligando o passado ao presente. De um lado, um gibeonita carrega um jarro de água, a mesma tarefa humilde aceita em Josué 9:27; do outro, um irmão idoso hoje cuida do jardim de um Salão do Reino, sem status nem destaque. Ligada ao parágrafo 7, a imagem mostra que o tipo de tarefa mudou, mas a disposição de servir sem cobrar reconhecimento continua sendo a mesma. A lição prática é procurar, esta semana, um trabalho humilde na congregação que ninguém está pedindo, e simplesmente fazer.
 
 @CANTICO 148 | Jeová é nosso Salvador

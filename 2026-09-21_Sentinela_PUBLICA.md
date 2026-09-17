@@ -2,8 +2,9 @@
 
 > **Sentinela de Estudo** · Semana de 21 a 27 de setembro de 2026
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-julho-2026/Voc%C3%AA-est%C3%A1-conhecendo-a-Jeov%C3%A1-cada-vez-melhor/)
+> Publicação: A Sentinela, edição de estudo de julho de 2026, páginas 14-19 (citação oficial da fonte: w26 julho pp. 14-19)
 
-**Texto-base:** 1 Crônicas 28:9 (TNM): “Conheça o Deus do seu pai e sirva-o de coração pleno.” [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=13028009)
+**Texto-base:** “Conheça o Deus do seu pai e sirva-o de coração pleno.” (1 CRÔ. 28:9) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=13028009)
 
 @CANTICO 12 | Nosso grandioso Deus, Jeová
 @OBJETIVO Aprender o que significa conhecer a Jeová, por que devemos conhecê-lo cada vez melhor e como podemos fazer isso.
@@ -94,7 +95,7 @@ Resposta: Quanto mais o conhecemos, mais confiamos nele, do jeito que Paulo conf
 
 ```
 O que a pergunta quer dizer: Que risco corre quem já tem tempo de verdade.
-O que o texto nos mostra: Pode acontecer de a pessoa deixar de se esforçar tanto pra aprender sobre Jeová como fazia no começo, se concentrando só em achar dicas práticas na Bíblia e esquecendo de perguntar: "O que isso me ensina sobre Jeová Deus?"
+O que o texto nos mostra: Pode acontecer de a pessoa deixar de se esforçar tanto pra aprender sobre Jeová como fazia no começo, se concentrando só em achar dicas práticas na Bíblia e esquecendo de perguntar: "O que isso me ensina sobre Jeová Deus?" A nota "a" do artigo diz: "Na Tradução do Novo Mundo, veja a pergunta 20 da seção "Uma Introdução à Palavra de Deus".".
 Como aplicar na nossa vida: É possível ler o mesmo capítulo por anos sem nunca parar pra pensar na Pessoa por trás das palavras. Na sua última leitura da Bíblia, você perguntou isso?
 Resposta: Pode acontecer de a pessoa se acomodar, buscando só aplicação prática na Bíblia e deixando de perguntar o que cada trecho ensina sobre o próprio Jeová.
 ```
@@ -134,7 +135,7 @@ O que aprendemos nesse trecho: três caminhos concretos pra continuar conhecendo
 
 ```
 O que a pergunta quer dizer: De onde normalmente vem o primeiro contato com Jeová.
-O que o texto nos mostra: Pra muita gente, foram os pais, usando histórias da Bíblia ou a criação. Pra outros, foi uma Testemunha de Jeová que ofereceu um estudo, usando uma publicação pra mostrar as maravilhosas qualidades de Deus nos relatos da Bíblia e na criação (Neemias 8:8; Atos 14:17).
+O que o texto nos mostra: Pra muita gente, foram os pais, usando histórias da Bíblia ou a criação. Pra outros, foi uma Testemunha de Jeová que ofereceu um estudo, usando uma publicação pra mostrar as maravilhosas qualidades de Deus nos relatos da Bíblia e na criação (Neemias 8:8; Atos 14:17). A nota "b" do artigo diz: "Veja os pontos 5-7 na lição 7 do livro Seja Feliz para Sempre!.".
 Como aplicar na nossa vida: Jeová projetou o conhecimento sobre ele pra ser transmitido de forma viva, através de relato e experiência. Quem foi a primeira pessoa que te falou de Jeová?
 Resposta: Pra maioria, foram os pais ou alguém que ofereceu um estudo bíblico, usando histórias da Bíblia e a criação pra mostrar as qualidades de Jeová.
 ```
@@ -210,13 +211,13 @@ Resposta: Lendo e estudando a Bíblia, procurando o que cada relato ensina sobre
 
 ## Imagens
 
-@IMG 12 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_1_lg.jpg | Ebede-Meleque e outros homens usando uma corda para tirar Jeremias da cisterna. Alguns homens armados ficam de guarda. | Com coragem, Ebede-Meleque tira Jeremias de uma cisterna
+@IMG 12 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_1_lg.jpg | Ebede-Meleque e outros homens usando uma corda para tirar Jeremias da cisterna. Alguns homens armados ficam de guarda. | Com coragem, Ebede-Meleque tira Jeremias de uma cisterna (Veja os parágrafos 12-13.)
 Comentando a imagem: vários homens puxam Jeremias de dentro de uma cisterna usando uma corda, enquanto outros ficam de guarda, prontos pra reagir se alguém tentasse impedir o resgate. Ligada aos parágrafos 12 e 13, a cena mostra Ebede-Meleque agindo contra uma injustiça mesmo sendo estrangeiro numa terra que não era a dele. A lição prática é que esse tipo de relato mostra o que Jeová valoriza: coragem pra fazer o certo, mesmo quando é arriscado.
 
-@IMG 15 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_2_lg.jpg | Uma irmã na varanda de sua casa, em uma cidade grande, regando as plantas e admirando um beija-flor que está se alimentando. | Aprenda mais sobre Jeová meditando profundamente nas coisas que ele criou
+@IMG 15 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_2_lg.jpg | Uma irmã na varanda de sua casa, em uma cidade grande, regando as plantas e admirando um beija-flor que está se alimentando. | Aprenda mais sobre Jeová meditando profundamente nas coisas que ele criou (Veja o parágrafo 15.)
 Comentando a imagem: uma irmã rega plantas na varanda do apartamento e para pra admirar um beija-flor bem perto dela. Ligada ao parágrafo 15 e ao exemplo de Patrick, a cena mostra que dá pra observar a criação mesmo numa cidade grande. A lição prática é que meditar sobre Jeová não depende de onde você mora, depende de parar pra reparar no que já está na sua frente.
 
-@IMG 16 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_3_lg.jpg | Conjunto de imagens: Um irmão lembrando de uma ocasião em que recebeu a ajuda de Jeová. 1. Ele fica ansioso com uma parte que vai ter que fazer na reunião e ora sobre isso. 2. Ele consegue fazer bem a sua parte na reunião. | Aprenda mais sobre Jeová pensando em tudo o que ele já fez por você | Um irmão que fica muito nervoso quando precisa fazer discursos pensa em como Jeová o ajudou a cumprir sua designação na reunião do meio de semana.
+@IMG 16 | https://cms-imgp.jw-cdn.org/img/p/2026484/univ/art/2026484_univ_cnt_3_lg.jpg | Conjunto de imagens: Um irmão lembrando de uma ocasião em que recebeu a ajuda de Jeová. 1. Ele fica ansioso com uma parte que vai ter que fazer na reunião e ora sobre isso. 2. Ele consegue fazer bem a sua parte na reunião. | Aprenda mais sobre Jeová pensando em tudo o que ele já fez por você (Veja o parágrafo 16.) | Um irmão que fica muito nervoso quando precisa fazer discursos pensa em como Jeová o ajudou a cumprir sua designação na reunião do meio de semana.
 Comentando a imagem: em duas cenas lado a lado, um irmão fica ansioso antes de uma parte na reunião e ora sobre isso, depois consegue fazer bem a designação. Ligada ao parágrafo 16 e ao exemplo de Maria, a sequência mostra alguém parando depois do fato pra reconhecer que foi Jeová quem ajudou. A lição prática é guardar esses momentos na memória, porque é lembrando deles que a nossa confiança em Jeová cresce.
 
 @CANTICO 28 | Quem pode ser amigo de Jeová?
