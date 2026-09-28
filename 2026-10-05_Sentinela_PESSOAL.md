@@ -4,14 +4,14 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/N%C3%A3o-seja-enganado-por-Satan%C3%A1s-Continue-confiando-em-Jeov%C3%A1-e-Jesus/)
 > Publicação: A Sentinela, edição de estudo de agosto de 2026, páginas 2-7 (citação oficial da fonte: w26 agosto pp. 2-7)
 
-**Texto-base:** “Oponham-se ao Diabo, e ele fugirá de vocês.” (TIA. 4:7) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=59004007)
+**Texto-base:** “Oponham-se ao Diabo, e ele fugirá de vocês.” — TIA. 4:7. [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=59004007)
 
 @CANTICO 55 | Nada temam, meus amados!
 @OBJETIVO Ver que mentiras Satanás tem contado sobre Jeová e Jesus, e o que podemos fazer para não ser enganados por ele.
 
 @ABERTURA Preparando a Mente e o Coração
 @ISCA Um soldado que deixa de confiar no comandante para de obedecer ordens: e isso pode custar a vida dele. Satanás sabe que a mesma coisa vale numa guerra espiritual: se ele conseguir plantar dúvida sobre se Jeová e Jesus realmente se importam com você, o resto da luta fica fácil pra ele. Esta semana é sobre reconhecer essa tática específica, contada desde Adão e Eva até hoje. Alguma vez você já pensou "será que Jeová realmente se importa com o que estou passando"?
-@RESUMO Este estudo mostra que a principal arma de Satanás não é força, é mentira: fazer a gente duvidar de que Jeová e Jesus realmente se importam com a gente. Ele já usou essa tática com Eva (Gênesis 3:1-5), com os três amigos de Jó (Jó 22:1-3) e contra o próprio Jesus, espalhando acusações através de líderes religiosos (Mateus 27:27-31). Hoje ele continua com a mesma tática, escondendo o nome de Jeová através da religião falsa, usando o sofrimento pra plantar raiva contra Deus e usando redes sociais pra confundir padrões morais. A experiência de Shannon mostra como alguém escapou dessa armadilha: orando, pesquisando nas publicações, e sendo humilde o bastante pra pedir ajuda de verdade. O estudo termina com dois caminhos concretos pra fortalecer a confiança em Jeová e Jesus: meditar em relatos que mostram o amor deles, e lembrar de ajudas reais que já recebemos.
+@RESUMO Este estudo mostra que a principal arma de Satanás não é força, é mentira: fazer a gente duvidar de que Jeová e Jesus realmente se importam com a gente. Ele já usou essa tática com Eva (Gênesis 3:1-5), com os três amigos de Jó (Jó 22:1-3) e contra o próprio Jesus, espalhando acusações através de líderes religiosos (Marcos 14:55, 56). Hoje ele continua com a mesma tática, escondendo o nome de Jeová através da religião falsa, usando o sofrimento pra plantar raiva contra Deus e usando redes sociais pra confundir padrões morais. A experiência de Shannon mostra como alguém escapou dessa armadilha: orando, pesquisando nas publicações, e sendo humilde o bastante pra pedir ajuda de verdade. O estudo termina com dois caminhos concretos pra fortalecer a confiança em Jeová e Jesus: meditar em relatos que mostram o amor deles, e lembrar de ajudas reais que já recebemos.
 @ENTENDENDO Entendendo o Estudo desta Semana
 - O que este artigo está tratando | Que a principal tática de Satanás, desde Éden até hoje, é fazer a gente duvidar de que Jeová e Jesus se importam de verdade com a gente: e como reconhecer e resistir a essa tática específica.
 - O que aprendo sobre Jeová neste estudo | Que ele descreve o amor dele por nós como maior do que o de uma mãe por um filho (Isaías 49:15), e chama quem ama o nome dele de "propriedade especial" (Malaquias 3:16, 17): não é linguagem de alguém distante.
@@ -86,7 +86,7 @@ Pra Laurinha: Jó continuou amigo de Jeová mesmo sofrendo muito.
 ```
 Resposta: Satanás usou líderes religiosos e outras pessoas que odiavam Jesus pra espalhar mentiras sobre ele. Muitas pessoas acreditaram nessas mentiras, acusaram Jesus de ser um criminoso e o mataram (Mateus 11:19; 27:27-31; Marcos 14:55, 56; João 8:41-45).
 
-Complementar 1: Mateus 11:19 registra que chamavam Jesus de "comilão e beberrão de vinho": uma calúnia sobre o caráter dele, não uma discordância teológica honesta. É o mesmo padrão: atacar a reputação de quem representa Jeová, não o argumento.
+Complementar 1: Mateus 11:19 registra que chamavam Jesus de “homem glutão e dado a beber vinho”: uma calúnia sobre o caráter dele, não uma discordância teológica honesta. É o mesmo padrão: atacar a reputação de quem representa Jeová, não o argumento.
 
 Complementar 2: O fato de mentiras terem convencido gente suficiente pra matar o próprio Filho de Deus mostra o alcance real dessa tática: não é um truque pequeno, é capaz de mover multidões contra a própria verdade.
 
@@ -248,7 +248,7 @@ Pra Laurinha: No próximo estudo vamos ver mais táticas de Satanás.
 **Que mentiras Satanás contou sobre Jeová e Jesus no passado?**
 
 ```
-Resposta: Ele mentiu pra Eva que Jeová era restritivo demais e não queria o melhor pra ela (Gênesis 3:1-5); usou os falsos amigos de Jó pra sugerir que Deus não valorizava a fidelidade dele (Jó 22:1-3); e espalhou mentiras através de líderes religiosos sobre o próprio caráter de Jesus, levando à morte dele (Mateus 11:19; 27:27-31).
+Resposta: Ele mentiu pra Eva que Jeová era restritivo demais e não queria o melhor pra ela (Gênesis 3:1-5); usou os falsos amigos de Jó pra sugerir que Deus não valorizava a fidelidade dele (Jó 22:1-3); e espalhou mentiras através de líderes religiosos e outras pessoas sobre o próprio caráter de Jesus, levando à morte dele (Mateus 11:19; 27:27-31; Marcos 14:55, 56; João 8:41-45).
 ```
 
 **Que mentiras Satanás tem contado sobre Jeová e Jesus hoje?**

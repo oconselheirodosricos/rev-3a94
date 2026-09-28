@@ -4,7 +4,7 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/Voc%C3%AA-pode-vencer-a-luta-contra-Satan%C3%A1s-e-os-dem%C3%B4nios/)
 > Publicação: A Sentinela, edição de estudo de agosto de 2026, páginas 8-13 (citação oficial da fonte: w26 agosto pp. 8-13)
 
-**Texto-base:** “Temos uma luta, não contra sangue e carne, mas contra . . . as forças espirituais malignas nos lugares celestiais.” (EFÉ. 6:12) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=49006012)
+**Texto-base:** “Temos uma luta, não contra sangue e carne, mas contra . . . as forças espirituais malignas nos lugares celestiais.” — EFÉ. 6:12. [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=49006012)
 
 @CANTICO 129 | Eu vou perseverar
 @OBJETIVO Ver o que podemos fazer para não deixar que o Diabo destrua a nossa união ou nos desanime com a oposição.
@@ -130,7 +130,7 @@ Pra Laurinha: Satanás usa a perseguição pra nos desviar.
 ```
 Resposta: Isaque ficou rico e passou a ter muitos animais, mas os filisteus vizinhos, com inveja, taparam os poços que os servos do seu pai Abraão tinham cavado (Gênesis 26:12-18). Precisando de água, Isaque decidiu se mudar e cavar outros poços, mas os filisteus disseram que a água também era deles. Em vez de brigar, Isaque se mudou de novo pra manter a paz, e Jeová o abençoou (Gênesis 26:19-25).
 
-Complementar 1: Isaque tinha, pela lei da força, todo o direito de disputar os poços: eram poços do próprio pai dele. Ele escolheu ceder mesmo estando no direito, o que mostra que "manter a paz" às vezes custa abrir mão de uma vitória legítima, não só de uma discussão qualquer.
+Complementar 1: Isaque tinha todo o direito de disputar os poços: os servos dele é que tinham cavado e achado a água (Gênesis 26:19-21), depois de os filisteus já terem tapado os poços do pai dele (Gênesis 26:18). Ele escolheu ceder mesmo estando no direito, o que mostra que "manter a paz" às vezes custa abrir mão de uma vitória legítima, não só de uma discussão qualquer.
 Complementar 2: O padrão se repete: Isaque cede, é perseguido de novo, cede de novo: até que finalmente consegue um poço sem disputa (Gênesis 26:22). A paciência de Isaque não foi um gesto único, foi um padrão sustentado várias vezes seguidas.
 Pra Laurinha: Isaque preferiu a paz à briga.
 ```

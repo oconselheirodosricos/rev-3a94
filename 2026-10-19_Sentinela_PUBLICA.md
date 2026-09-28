@@ -4,7 +4,7 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/Um-pedido-feito-com-base-no-amor/)
 > Publicação: A Sentinela, edição de estudo de agosto de 2026, páginas 14-19 (citação oficial da fonte: w26 agosto pp. 14-19)
 
-**Texto-base:** “Prefiro lhe fazer um apelo à base do amor.” (FILÊM. 9) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=57001009)
+**Texto-base:** “Prefiro lhe fazer um apelo à base do amor.” — FILÊM. 9. [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=57001009)
 
 @CANTICO 106 | Amor, a qualidade que é sem igual
 @OBJETIVO Ver que lições aprendemos com Paulo, Onésimo e Filêmon sobre conviver em paz com os irmãos.
@@ -123,7 +123,7 @@ O que aprendemos nesse trecho: como agir quando somos nós que ofendemos alguém
 O que a pergunta quer dizer: O que Onésimo fez que nem sempre é fácil de fazer.
 O que o texto nos mostra: Onésimo admitiu o erro e se esforçou pra fazer as pazes: aceitou uma viagem cara de mais de 1.400 quilômetros, dispôs-se a abrir mão da liberdade e a encarar as consequências, mesmo achando que talvez tivesse motivo pra ter fugido.
 Como aplicar na nossa vida: Onésimo agiu sem garantia de que tudo terminaria bem. Você está disposto a fazer o certo mesmo sem essa garantia?
-Resposta: Onésimo admitiu o erro e se esforçou pra reparar a situação, mesmo sem saber como Filêmon reagiria (Filêmon 18).
+Resposta: Onésimo admitiu o erro e se esforçou pra reparar a situação, mesmo sem saber como Filêmon reagiria (parágrafo 10).
 ```
 
 **11. O que podemos fazer pra recuperar a paz quando ofendemos alguém?**

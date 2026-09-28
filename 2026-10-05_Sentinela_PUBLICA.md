@@ -4,7 +4,7 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/N%C3%A3o-seja-enganado-por-Satan%C3%A1s-Continue-confiando-em-Jeov%C3%A1-e-Jesus/)
 > Publicação: A Sentinela, edição de estudo de agosto de 2026, páginas 2-7 (citação oficial da fonte: w26 agosto pp. 2-7)
 
-**Texto-base:** “Oponham-se ao Diabo, e ele fugirá de vocês.” (TIA. 4:7) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=59004007)
+**Texto-base:** “Oponham-se ao Diabo, e ele fugirá de vocês.” — TIA. 4:7. [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=59004007)
 
 @CANTICO 55 | Nada temam, meus amados!
 @OBJETIVO Ver que mentiras Satanás tem contado sobre Jeová e Jesus, e o que podemos fazer para não ser enganados por ele.
@@ -199,7 +199,7 @@ Resposta: Vamos ver como Satanás usa divisões na congregação e oposição ex
 **Que mentiras Satanás contou sobre Jeová e Jesus no passado?**
 
 ```
-Resposta: Ele mentiu pra Eva que Jeová era restritivo demais (Gênesis 3:1-5); usou os falsos amigos de Jó pra sugerir que Deus não valorizava a fidelidade dele (Jó 22:1-3); e espalhou mentiras sobre o caráter de Jesus através de líderes religiosos, levando à morte dele (Mateus 11:19; 27:27-31).
+Resposta: Ele mentiu pra Eva que Jeová era restritivo demais (Gênesis 3:1-5); usou os falsos amigos de Jó pra sugerir que Deus não valorizava a fidelidade dele (Jó 22:1-3); e espalhou mentiras sobre o caráter de Jesus através de líderes religiosos e outras pessoas, levando à morte dele (Mateus 11:19; 27:27-31; Marcos 14:55, 56; João 8:41-45).
 ```
 
 **Que mentiras Satanás tem contado sobre Jeová e Jesus hoje?**

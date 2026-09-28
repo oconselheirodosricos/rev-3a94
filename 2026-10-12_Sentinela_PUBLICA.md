@@ -4,7 +4,7 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/Voc%C3%AA-pode-vencer-a-luta-contra-Satan%C3%A1s-e-os-dem%C3%B4nios/)
 > Publicação: A Sentinela, edição de estudo de agosto de 2026, páginas 8-13 (citação oficial da fonte: w26 agosto pp. 8-13)
 
-**Texto-base:** “Temos uma luta, não contra sangue e carne, mas contra . . . as forças espirituais malignas nos lugares celestiais.” (EFÉ. 6:12) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=49006012)
+**Texto-base:** “Temos uma luta, não contra sangue e carne, mas contra . . . as forças espirituais malignas nos lugares celestiais.” — EFÉ. 6:12. [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=49006012)
 
 @CANTICO 129 | Eu vou perseverar
 @OBJETIVO Ver o que podemos fazer para não deixar que o Diabo destrua a nossa união ou nos desanime com a oposição.

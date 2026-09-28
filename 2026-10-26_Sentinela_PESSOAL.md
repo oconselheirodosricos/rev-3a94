@@ -4,7 +4,7 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/D%C3%AA-valor-ao-privil%C3%A9gio-de-prestar-destemidamente-servi%C3%A7o-sagrado/)
 > Publicação: A Sentinela, edição de estudo de agosto de 2026, páginas 20-25 (citação oficial da fonte: w26 agosto pp. 20-25)
 
-**Texto-base:** “Ele fez surgir para nós um poderoso salvador . . . [para] nos conceder . . . o privilégio de lhe prestar destemidamente serviço sagrado.” (LUCAS 1:69, 74) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=42001069)
+**Texto-base:** “Ele fez surgir para nós um poderoso salvador . . . [para] nos conceder . . . o privilégio de lhe prestar destemidamente serviço sagrado.” — LUCAS 1:69, 74. [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=42001069)
 
 @CANTICO 62 | O novo cântico
 @OBJETIVO Aprender a dar valor ao presente da salvação, ao privilégio de servir a Jeová e à responsabilidade de pregar.
@@ -37,7 +37,7 @@ O que vemos aqui: Zacarias profetiza sobre um "poderoso salvador" ainda antes de
 ```
 Resposta: Cheio de espírito santo, Zacarias respondeu à pergunta que parentes e vizinhos faziam sobre o recém-nascido João, "o que será que esse menino vai ser?" (Lucas 1:57-66), dizendo que João ajudaria as pessoas a se arrepender e a se preparar pro Messias que logo viria (Amós 3:7; Lucas 1:67-79). Mas ele foi além de descrever o filho: profetizou algo que tem a ver com cada um de nós hoje, sobre três coisas que devemos dar valor: o presente da salvação, o privilégio de servir a Jeová, e a responsabilidade de pregar. A nota "a" do artigo diz: "Assista ao trecho que mostra a profecia de Zacarias relacionada a Lucas 1:67 com o título “O Nome Dele É João”, do vídeo A História e o Ministério de Jesus: Episódio 1."
 
-Complementar 1: Repare que a profecia não veio de um sacerdote em serviço solene no templo, veio de um pai comum, cheio de emoção, no dia da circuncisão do próprio filho. Jeová usa momentos familiares comuns pra revelar verdades enormes, não só ocasiões formais.
+Complementar 1: Repare que a profecia não veio durante o serviço de Zacarias como sacerdote no templo, veio dele como pai, cheio de emoção, no dia da circuncisão do próprio filho (Lucas 1:59-67). Jeová usa momentos familiares comuns pra revelar verdades enormes, não só ocasiões formais.
 
 Complementar 2: Zacarias tinha ficado mudo durante toda a gravidez de Elisabete, por causa da dúvida que expressou quando o anjo Gabriel lhe deu a notícia (Lucas 1:18-20). A primeira coisa que ele faz ao recuperar a fala não é reclamar do silêncio forçado, é profetizar sobre o Messias. Isso mostra onde estava o coração dele o tempo todo.
 
@@ -191,7 +191,7 @@ Resposta: Jesus se esforçou bastante pra divulgar a mensagem, cumprindo as pala
 
 Complementar 1: Repare que a motivação de Jesus pra pregar não era só cumprir a profecia, era compaixão genuína pelo sofrimento das pessoas. Pregar por obrigação profética e pregar por compaixão real produzem o mesmo resultado externo, mas só o segundo sustenta o trabalho no longo prazo.
 
-Complementar 2: Jesus treinou discípulos em vez de só pregar pessoalmente pelo resto da vida, mesmo sabendo que faria um trabalho melhor sozinho no curto prazo. Isso ensina que multiplicar pregadores, mesmo com o custo de treinamento, vale mais que centralizar tudo numa só pessoa habilidosa.
+Complementar 2: Jesus treinou discípulos em vez de só pregar pessoalmente, porque, como diz o parágrafo 14, “ele sabia que seria necessário muito mais pessoas para pregar”. Isso ensina que multiplicar pregadores, mesmo com o custo de treinamento, vale mais que centralizar tudo numa só pessoa habilidosa.
 
 Pra Laurinha: Jesus ensinou outras pessoas a pregar também.
 ```
@@ -215,7 +215,7 @@ Resposta: As palavras de Zacarias em Lucas 1:68-79 lembram de três coisas: o ma
 
 Complementar 1: Repare que o artigo termina exatamente com as mesmas três coisas do início (parágrafo 1): presente, privilégio, responsabilidade. A estrutura circular reforça que as três não são pontos isolados, são uma sequência lógica: recebemos o presente, isso nos dá o privilégio de servir, e o privilégio nos leva à responsabilidade de anunciar.
 
-Complementar 2: A expressão "dia de vingança" de Jeová, citada no fechamento, é a mesma frase de Isaías 61:2 que Jesus leu na sinagoga (Lucas 4:19), mas ele parou de ler bem antes dessa parte na ocasião, porque naquele momento ainda não era hora do julgamento. Hoje, mais perto do cumprimento, a mensagem completa, incluindo essa parte, já pode ser anunciada.
+Complementar 2: A expressão "dia de vingança" de Jeová, citada no fechamento, é a mesma frase de Isaías 61:2 que Jesus leu na sinagoga (Lucas 4:19), mas ele parou de ler logo antes dessa expressão, depois de “o ano aceitável de Jeová”, e enrolou o rolo (Lucas 4:19, 20). O artigo diz pra falar hoje das duas coisas: do “ano de boa vontade de Jeová” e do “dia de vingança” dele.
 
 Pra Laurinha: Dê valor ao presente, ao privilégio e à responsabilidade.
 ```

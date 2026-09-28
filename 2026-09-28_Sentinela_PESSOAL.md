@@ -4,7 +4,7 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-julho-2026/Ajude-outros-a-conhecer-a-Jeov%C3%A1/)
 > Publicação: A Sentinela, edição de estudo de julho de 2026, páginas 20-25 (citação oficial da fonte: w26 julho pp. 20-25)
 
-**Texto-base:** “Isto significa vida eterna: que conheçam a ti, o único Deus verdadeiro.” (JOÃO 17:3) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=43017003)
+**Texto-base:** “Isto significa vida eterna: que conheçam a ti, o único Deus verdadeiro.” — JOÃO 17:3. [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=43017003)
 
 @CANTICO 79 | Ensine-os a se manter firmes
 @OBJETIVO Ver como você pode ajudar seu estudante da Bíblia a conhecer a Jeová, incluindo as qualidades dele e o que agrada ou não a ele.
@@ -243,6 +243,9 @@ Resposta: Incentivando o estudante a recorrer ao que já sabe sobre o caráter d
 ```
 
 ## Imagens
+
+@IMG 8 | https://cms-imgp.jw-cdn.org/img/p/2026485/univ/art/2026485_univ_cnt_1_lg.jpg | Uma irmã presta atenção enquanto sua estudante responde uma pergunta da lição 17 do livro “Seja Feliz para Sempre!”. |
+Comentando a imagem: a instrutora segura o livro aberto e sorri, olhando pra estudante, que responde gesticulando. A fonte publica esta foto no quadro "Perguntas que nos ajudam a ensinar", e é o parágrafo 8 que manda ver esse quadro. A cena mostra o método do parágrafo: a pergunta do livro Seja Feliz para Sempre! faz a estudante dizer com as próprias palavras o que entendeu sobre Jeová, e quem ensina escuta em vez de falar. A lição prática é que a pergunta só ensina quando a gente dá tempo e atenção pra resposta.
 
 @IMG 12 | https://cms-imgp.jw-cdn.org/img/p/2026485/univ/art/2026485_univ_cnt_2_lg.jpg | Conjunto de imagens: A mesma irmã revisa com sua estudante da Bíblia algumas coisas que ela já aprendeu. 1. Jeová sentado no seu trono no céu. 2. Adão e Eva pensando em comer o fruto proibido. 3. Um calcanhar esmagando a cabeça de uma serpente. 4. A arca de Noé flutuando sobre as águas durante o Dilúvio. 5. Moisés abrindo o Mar Vermelho. 6. As muralhas de Jericó desmoronando enquanto a casa de Raabe fica intacta. 7. Ebede-Meleque tirando Jeremias de uma cisterna. 8. Jesus pendurado numa estaca. | Ensine seu estudante a lembrar do que já sabe sobre Jeová quando ele achar difícil entender um relato da Bíblia (Veja os parágrafos 12-13.)
 Comentando a imagem: oito cenas em miniatura, do trono de Jeová até a estaca de Jesus, formam um mapa visual da história bíblica que a instrutora usa pra revisar com a estudante o que ela já sabe. Ligada aos parágrafos 12 e 13, a imagem traduz literalmente o conselho do artigo: diante de um relato difícil, o estudante volta pro que já conhece sobre Jeová. A lição prática é que o conhecimento bíblico funciona como uma rede: cada relato novo se apoia nos relatos já conhecidos, e sustenta o estudante quando um relato específico é difícil de entender sozinho.

@@ -4,7 +4,7 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/Um-pedido-feito-com-base-no-amor/)
 > Publicação: A Sentinela, edição de estudo de agosto de 2026, páginas 14-19 (citação oficial da fonte: w26 agosto pp. 14-19)
 
-**Texto-base:** “Prefiro lhe fazer um apelo à base do amor.” (FILÊM. 9) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=57001009)
+**Texto-base:** “Prefiro lhe fazer um apelo à base do amor.” — FILÊM. 9. [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=57001009)
 
 @CANTICO 106 | Amor, a qualidade que é sem igual
 @OBJETIVO Ver que lições aprendemos com Paulo, Onésimo e Filêmon sobre conviver em paz com os irmãos.

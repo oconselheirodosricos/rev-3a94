@@ -4,7 +4,7 @@
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/D%C3%AA-valor-ao-privil%C3%A9gio-de-prestar-destemidamente-servi%C3%A7o-sagrado/)
 > Publicação: A Sentinela, edição de estudo de agosto de 2026, páginas 20-25 (citação oficial da fonte: w26 agosto pp. 20-25)
 
-**Texto-base:** “Ele fez surgir para nós um poderoso salvador . . . [para] nos conceder . . . o privilégio de lhe prestar destemidamente serviço sagrado.” (LUCAS 1:69, 74) [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=42001069)
+**Texto-base:** “Ele fez surgir para nós um poderoso salvador . . . [para] nos conceder . . . o privilégio de lhe prestar destemidamente serviço sagrado.” — LUCAS 1:69, 74. [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=42001069)
 
 @CANTICO 62 | O novo cântico
 @OBJETIVO Aprender a dar valor ao presente da salvação, ao privilégio de servir a Jeová e à responsabilidade de pregar.
