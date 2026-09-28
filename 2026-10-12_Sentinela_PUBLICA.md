@@ -27,8 +27,7 @@
 
 ---
 
-**1. Contra quem todos nós temos que lutar?**
-
+**1. Contra quem todos nós temos que lutar? (Efésios 6:11, 12)**
 ```
 O que a pergunta quer dizer: Que tipo de guerra os cristãos realmente enfrentam.
 O que o texto nos mostra: Como servos de Jeová, não participamos das guerras do mundo (Isaías 2:4; João 18:36), mas estamos numa luta contra espíritos malignos (Efésios 6:11, 12). O mais importante pra vencer é confiar na ajuda de Jeová e conhecer as táticas de Satanás.

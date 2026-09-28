@@ -170,7 +170,7 @@ Complementar 1: Repare que a estratégia não é dar uma resposta pronta pra cad
 Complementar 2: Êxodo 34:6, 7 é a autodescrição de Jeová que ele mesmo proclamou a Moisés: “Deus misericordioso e compassivo, paciente e cheio de amor leal” (versículo 6), mas também “de modo algum deixará impune o culpado” (versículo 7). É um texto que já contém as duas metades da resposta pra qualquer estudante confuso: Jeová é compassivo E justo ao mesmo tempo, e um relato difícil quase sempre está mostrando uma dessas duas facetas, não uma contradição entre elas.
 Complementar 3: 2 Pedro 3:9 é útil porque muda o ângulo da pergunta: em vez de perguntar "por que Jeová destruiu", o texto convida a perguntar "por que Jeová esperou tanto", já que ele “não deseja que ninguém seja destruído, mas deseja que todos alcancem o arrependimento” (2 Pedro 3:9). Um estudante que aprende a fazer essa segunda pergunta enxerga paciência onde antes só via julgamento.
 
-Pra Laurinha: Confio em Jeová mesmo sem saber tudo.
+Pra Laurinha: Eu confio em Jeová sempre.
 ```
 
 **14. Como você pode ajudar um estudante que está tendo dificuldade para se dar bem com alguém na congregação?**

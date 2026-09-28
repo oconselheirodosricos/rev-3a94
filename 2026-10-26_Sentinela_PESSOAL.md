@@ -37,15 +37,14 @@ Complementar 1: Repare que a profecia não veio durante o serviço de Zacarias c
 
 Complementar 2: Zacarias tinha ficado mudo durante toda a gravidez de Elisabete, por causa da dúvida que expressou quando o anjo Gabriel lhe deu a notícia (Lucas 1:18-20). A primeira coisa que ele faz ao recuperar a fala não é reclamar do silêncio forçado, é profetizar sobre o Messias. Isso mostra onde estava o coração dele o tempo todo.
 
-Pra Laurinha: Zacarias falou sobre Jesus assim que pôde falar de novo.
+Pra Laurinha: Ele falou do Salvador que vinha.
 ```
 
 ## O PRESENTE DA SALVAÇÃO
 
 O que vemos aqui: Zacarias profetiza sobre um "poderoso salvador" ainda antes de Jesus nascer, e o texto explica de que exatamente esse Salvador nos livra.
 
-**2. (a) De acordo com Lucas 1:67-73, o que Deus prometeu ao seu povo? (b) Quem é o "poderoso salvador" mencionado em Lucas 1:69?**
-
+**2. (a) De acordo com Lucas 1:67-73, o que Deus prometeu ao seu povo? (b) Quem é o “poderoso salvador” mencionado em Lucas 1:69?**
 ```
 Resposta: Zacarias disse: "[Jeová] fez surgir para nós um poderoso salvador na casa de Davi" (Lucas 1:69). Esse "poderoso salvador" seria o Messias, que os judeus já sabiam que viria da linhagem do rei Davi (Gênesis 22:17, 18; Mateus 22:42). Jeová usou Zacarias pra anunciar isso porque a chegada do Messias estava mais perto do que nunca: dentro de seis meses, Maria daria à luz Jesus, que seria chamado "Filho de Deus" e reinaria no "trono de Davi, seu pai" (Lucas 1:30-35). O "poderoso salvador" surgiu de fato quando Jesus foi batizado, aos 30 anos, e ungido com espírito santo, se tornando o Messias (Mateus 3:16, 17).
 
@@ -53,7 +52,7 @@ Complementar 1: Vale notar a distância entre nascer e se tornar o Salvador ungi
 
 Complementar 2: A profecia de Zacarias sobre um evento que só se cumpriria décadas depois mostra a mesma confiança que Abraão teve na promessa de Gênesis 22:17, 18: Jeová não precisa que a profecia se cumpra na hora pra ela ser digna de fé.
 
-Pra Laurinha: Jeová prometeu um Salvador, e Jesus foi ele.
+Pra Laurinha: Um Salvador: Jesus.
 ```
 
 **3. De que inimigos os judeus precisavam ser salvos?**
@@ -65,7 +64,7 @@ Complementar 1: Repare que identificar o inimigo errado (Roma) em vez do certo (
 
 Complementar 2: A "maldição" da Lei mosaica (Gálatas 3:10, 13) não era um castigo arbitrário, era a consequência natural de uma aliança que exigia perfeição de um povo imperfeito. Entender isso ajuda a não enxergar a Lei como injusta, mas como um sistema que apontava pra própria necessidade de um resgate.
 
-Pra Laurinha: Precisávamos ser salvos de Satanás, do pecado e da morte.
+Pra Laurinha: Do pecado e da morte.
 ```
 
 **4. De que inimigos precisamos ser salvos hoje?**
@@ -77,7 +76,7 @@ Complementar 1: O texto lista dois tipos de ataque: o engano direto (tentar nos 
 
 Complementar 2: "Somos escravos do pecado e da morte" não é uma frase de desespero, é o diagnóstico que torna a solução (o poderoso salvador do parágrafo 2) necessária e preciosa. Ninguém valoriza um remédio sem primeiro reconhecer a doença.
 
-Pra Laurinha: Satanás ainda tenta nos afastar de Jeová hoje.
+Pra Laurinha: Satanás, o pecado e a morte.
 ```
 
 **5. De que maneiras Jesus nos salva do pecado?**
@@ -89,11 +88,10 @@ Complementar 1: Repare na ordem: primeiro o ensino (como adorar certo), depois o
 
 Complementar 2: "Todo aquele que nele exercer fé" (João 3:16) é condição, não automatismo. O resgate está disponível pra todos, mas só livra de fato quem exerce fé nele, o que inclui viver de acordo com o que Jesus ensinou, não só acreditar de longe.
 
-Pra Laurinha: Jesus morreu pra pagar pelos nossos pecados.
+Pra Laurinha: Jesus deu a vida por nós.
 ```
 
-**6. O que Jesus vai fazer como Rei no "trono de Davi"? (Veja também a imagem.)**
-
+**6. O que Jesus vai fazer como Rei no “trono de Davi”? (Veja também a imagem.)**
 ```
 Resposta: Desde 1914, Jesus reina no céu no "trono de Davi, seu pai" (Lucas 1:32, 33). Como Rei, junto com os 144 mil e os anjos, ele vai destruir todos os inimigos humanos de Deus no Armagedom. Durante o Reinado de Mil Anos, Jesus vai ressuscitar os mortos e, aos poucos, ajudar os humanos a se tornarem perfeitos (João 5:28; Apocalipse 22:1, 2). No final dos mil anos, o pecado herdado e a morte terão acabado (1 Coríntios 15:26, 55-57), e Satanás, seus demônios e os humanos do lado deles no teste final serão eliminados por completo (Apocalipse 20:7-10). Então os adoradores leais de Jeová vão ter amizade com ele sem pecado, sem morte e sem inimigo nenhum.
 
@@ -101,7 +99,7 @@ Complementar 1: O plano de salvação não termina no Armagedom, termina só dep
 
 Complementar 2: 2 Coríntios 9:15 chama a salvação de "Sua indescritível dádiva". A palavra "indescritível" é forte de propósito: nenhuma explicação humana consegue abarcar totalmente o tamanho do que Jeová está oferecendo por meio de Jesus.
 
-Pra Laurinha: Um dia, Jesus vai acabar com o pecado e a morte pra sempre.
+Pra Laurinha: Jesus vai acabar com a morte.
 ```
 
 ## O PRIVILÉGIO DE SERVIR A JEOVÁ
@@ -117,7 +115,7 @@ Complementar 1: Repare que "serviço sagrado" é uma categoria bem mais ampla do
 
 Complementar 2: A palavra "privilégio" já aparece antes de "destemidamente" na frase de Zacarias. Isso importa: o texto não trata o serviço sagrado como obrigação pesada que exige coragem pra suportar, trata como algo tão bom que vale a pena fazer sem medo.
 
-Pra Laurinha: Servir a Jeová é um privilégio, não um peso.
+Pra Laurinha: Servir a Jeová sem medo.
 ```
 
 **8. Do que não precisamos ter medo?**
@@ -129,7 +127,7 @@ Complementar 1: Os dois medos que o texto nomeia, medo da morte e medo de rejei�
 
 Complementar 2: "Não cedemos ao medo" não significa não sentir medo nenhum diante de uma ameaça real. Significa que o medo, quando aparece, não muda a decisão de continuar leal. Coragem bíblica não é ausência de medo, é lealdade apesar dele.
 
-Pra Laurinha: Não precisamos ter medo de servir a Jeová.
+Pra Laurinha: De servir a Jeová.
 ```
 
 **9. Que dificuldade alguns cristãos têm?**
@@ -141,7 +139,7 @@ Complementar 1: Repare que o texto não trata esse sentimento como bobagem ou fa
 
 Complementar 2: A pergunta que fecha o parágrafo, "o que você pode fazer?", já sinaliza que existe um caminho prático, não só um conforto emocional passageiro. A resposta prática vem no parágrafo seguinte, com a ilustração do osso quebrado.
 
-Pra Laurinha: Às vezes é difícil acreditar que Jeová está feliz com a gente.
+Pra Laurinha: Achar que Jeová não gosta deles.
 ```
 
 **10-11. O que podemos fazer se estamos sofrendo em sentido emocional e achamos que Jeová não nos ama mais? Ilustre.**
@@ -153,7 +151,7 @@ Complementar 1: A ilustração escolhe especificamente uma recuperação lenta, 
 
 Complementar 2: Repare que o médico já colocou o osso no lugar (o perdão já foi concedido), mas a recuperação da força ainda depende da pessoa seguir os exercícios (continuar na rotina espiritual). A "recomendação médica" citada, oração, estudo, atividades espirituais, são exatamente as mesmas atividades que definem o "serviço sagrado" do parágrafo 7: o próprio remédio pra dúvida sobre servir é continuar servindo, não parar até "se sentir melhor" primeiro.
 
-Pra Laurinha: Um osso quebrado sara aos poucos, com cuidado, e um coração ferido também.
+Pra Laurinha: Pedir ajuda e ter paciência.
 ```
 
 ## A RESPONSABILIDADE DE PREGAR
@@ -172,8 +170,7 @@ Complementar 2: A profecia foi feita quando João ainda era recém-nascido, déc
 Pra Laurinha: João apontou as pessoas pra Jesus.
 ```
 
-**13. Em que sentido a vinda do Messias seria "um amanhecer" para o povo de Deus?**
-
+**13. Em que sentido a vinda do Messias seria “um amanhecer” para o povo de Deus?**
 ```
 Resposta: Segundo Zacarias, a vinda do Messias seria "um amanhecer", o início de uma nova era que mudaria a vida de todas as pessoas. A notícia sobre esse presente da salvação precisava ser espalhada pro maior número possível de pessoas, e João sozinho não teria condições de fazer isso.
 
@@ -181,7 +178,7 @@ Complementar 1: A imagem de "amanhecer" sugere início gradual de luz, não um c
 
 Complementar 2: Reconhecer os próprios limites, "João não teria condições de fazer isso sozinho", é o que abre espaço pra pergunta seguinte: quem mais divulgaria a mensagem? Essa mesma humildade de reconhecer limite pessoal é o que nos leva, hoje, a depender uns dos outros na pregação.
 
-Pra Laurinha: Uma pessoa só não dava conta de espalhar a notícia.
+Pra Laurinha: Um dia novo ia começar.
 ```
 
 **14. Que trabalho importante Jesus e seus discípulos fizeram? (Isaías 61:1, 2)**
@@ -193,11 +190,10 @@ Complementar 1: Repare que a motivação de Jesus pra pregar não era só cumpri
 
 Complementar 2: Jesus treinou discípulos em vez de só pregar pessoalmente, porque, como diz o parágrafo 14, “ele sabia que seria necessário muito mais pessoas para pregar”. Isso ensina que multiplicar pregadores, mesmo com o custo de treinamento, vale mais que centralizar tudo numa só pessoa habilidosa.
 
-Pra Laurinha: Jesus ensinou outras pessoas a pregar também.
+Pra Laurinha: Pregaram e ensinaram outros a pregar.
 ```
 
-**15. Por que pregar as boas novas é mais importante agora do que nunca?**
-
+**15. Por que hoje a pregação é mais importante do que nunca?**
 ```
 Resposta: Em breve, a humanidade vai enfrentar uma "grande tribulação, como nunca ocorreu desde o princípio do mundo" (Mateus 24:21). Nesse período, talvez mais pessoas aceitem as boas novas e comecem a servir a Jeová porque vão se lembrar da mensagem que já pregamos. Depois, Jesus vai liderar os 144 mil e os anjos pra lutar contra todos os inimigos humanos de Deus e salvar os que adoram a Jeová, pra que vivam no novo mundo (Mateus 25:34; Apocalipse 16:16; 19:19).
 
@@ -205,7 +201,7 @@ Complementar 1: Repare que o valor da pregação de hoje não termina hoje: o te
 
 Complementar 2: A referência a Mateus 24:14 e Marcos 13:10 (pregar “em testemunho a todas as nações”) liga a pregação de hoje diretamente ao cronograma do fim: o texto não trata a pregação como só uma atividade boa, trata como condição declarada pra chegar ao fim deste sistema.
 
-Pra Laurinha: Pregar agora ajuda pessoas a se lembrarem depois.
+Pra Laurinha: O fim está chegando.
 ```
 
 **16. O que você está decidido a fazer? (Veja também as imagens.)**
@@ -217,7 +213,7 @@ Complementar 1: Repare que o artigo termina exatamente com as mesmas três coisa
 
 Complementar 2: A expressão "dia de vingança" de Jeová, citada no fechamento, é a mesma frase de Isaías 61:2 que Jesus leu na sinagoga (Lucas 4:19), mas ele parou de ler logo antes dessa expressão, depois de “o ano aceitável de Jeová”, e enrolou o rolo (Lucas 4:19, 20). O artigo diz pra falar hoje das duas coisas: do “ano de boa vontade de Jeová” e do “dia de vingança” dele.
 
-Pra Laurinha: Dê valor ao presente, ao privilégio e à responsabilidade.
+Pra Laurinha: Vou pregar com alegria.
 ```
 
 @RECAP DE ACORDO COM A PROFECIA EM LUCAS 1:68-79, . . .

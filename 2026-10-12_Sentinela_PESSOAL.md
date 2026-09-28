@@ -27,14 +27,13 @@
 
 ---
 
-**1. Contra quem todos nós temos que lutar?**
-
+**1. Contra quem todos nós temos que lutar? (Efésios 6:11, 12)**
 ```
 Resposta: Como servos de Jeová, nós não participamos das guerras que acontecem no mundo (Isaías 2:4; João 18:36). Mas a Bíblia fala que todos nós estamos num outro tipo de guerra: uma luta contra espíritos malignos (Efésios 6:11, 12). O mais importante pra vencer essa luta é sempre confiarmos na ajuda de Jeová, mas também precisamos saber quais táticas Satanás e os demônios usam contra nós e nossa família espiritual.
 
 Complementar 1: Repare que a neutralidade política (Isaías 2:4; João 18:36) não significa passividade espiritual. Estamos fora de uma guerra, mas dentro de outra: e essa distinção evita tanto o erro de se envolver em conflitos humanos quanto o erro de baixar a guarda espiritual achando que "não lutamos contra nada".
 Complementar 2: A ordem das prioridades no parágrafo é intencional: primeiro confiar na ajuda de Jeová, DEPOIS conhecer as táticas do inimigo. Conhecer tática sem confiança vira ansiedade; confiança sem conhecer a tática vira ingenuidade. As duas coisas precisam andar juntas.
-Pra Laurinha: Lutamos contra espíritos malignos, não contra pessoas.
+Pra Laurinha: Contra Satanás e os demônios.
 ```
 
 **2. O que vamos ver neste estudo?**
@@ -58,7 +57,7 @@ Resposta: Satanás tenta causar problemas entre nós e nossos irmãos, com o obj
 
 Complementar 1: Repare que a tática não exige que sejamos convencidos de nenhuma doutrina falsa: só exige que copiemos o PADRÃO DE RELACIONAMENTO do mundo (desconfiança, crítica) mesmo continuando a acreditar na verdade. É uma tática que ataca o comportamento antes da crença.
 Complementar 2: "Ser influenciados por essas pessoas" não significa necessariamente conviver com elas: o padrão de desconfiança do mundo também chega pela mídia, pelas redes sociais e pela cultura geral, sem contato pessoal nenhum com quem o pratica.
-Pra Laurinha: Satanás quer que a gente brigue entre irmãos.
+Pra Laurinha: Ele quer que a gente brigue.
 ```
 
 **4. Por que Saul passou a odiar Davi? (Veja também a imagem.)**
@@ -88,7 +87,7 @@ Resposta: Se amarmos de verdade nossos irmãos, não vamos ter ciúme deles: vam
 
 Complementar 1: Jonatã tinha, humanamente falando, mais motivo pra ciúme que o próprio Saul: ele era o herdeiro natural do trono que Davi ocuparia. Mesmo assim, escolheu apoiar em vez de competir, o que mostra que a lealdade dele veio de reconhecer a vontade de Jeová, não de falta de interesse pessoal no trono.
 Complementar 2: Repare que Jonatã não só evitou o ciúme, ele foi ATIVO em apoiar Davi ("garantiu para seu amigo"). Evitar um sentimento ruim é o mínimo; a lealdade de verdade vai além e apoia ativamente quem poderia, humanamente, ser visto como rival.
-Pra Laurinha: Jonatã foi um bom amigo de Davi.
+Pra Laurinha: Jonatã não teve ciúme de Davi.
 ```
 
 **7. O que podemos fazer para não deixar Satanás destruir nossa união? (Efésios 4:25-27)**
@@ -98,7 +97,7 @@ Resposta: Outra coisa que Satanás usa pra tentar destruir nossa união são as 
 
 Complementar 1: Efésios 4:26, 27 liga diretamente resolver um desentendimento rápido a não dar “chance ao Diabo”: o texto trata um problema não resolvido entre irmãos como uma porta aberta literalmente pro adversário, não só como um desconforto social.
 Complementar 2: A comparação com o corpo (1 Coríntios 12:12) é útil porque nenhuma parte do corpo escolhe as outras partes por semelhança; elas funcionam juntas apesar da diferença de forma e função. Diferença de personalidade não é motivo pra divisão, é o próprio design de como um corpo funciona.
-Pra Laurinha: Resolver logo qualquer briga com um irmão.
+Pra Laurinha: Fazer as pazes bem rápido.
 ```
 
 **8. O que podemos fazer quando um irmão ou uma irmã nos magoa?**
@@ -122,7 +121,7 @@ Resposta: A perseguição. O apóstolo Paulo alertou que todos os cristãos verd
 
 Complementar 1: Repare que a tática não é a perseguição em si, é o DESVIO DE FOCO que a reação à perseguição pode causar. Satanás não precisa vencer a fé de ninguém pela força; basta ocupar o tempo e a energia da pessoa com a própria injustiça.
 Complementar 2: O aviso de Paulo (2 Timóteo 3:12) trata a perseguição como PREVISÍVEL, não como exceção. Isso muda a expectativa: um cristão que espera perseguição reage diferente de um que a vê como uma falha do sistema que precisa ser corrigida.
-Pra Laurinha: Satanás usa a perseguição pra nos desviar.
+Pra Laurinha: Ele usa quem é contra nós.
 ```
 
 **10. O que Isaque fez ao enfrentar injustiças?**
@@ -142,7 +141,7 @@ Resposta: Jesus enfrentou muitos desafios: parentes que achavam que ele tinha pe
 
 Complementar 1: O ato de curar a orelha do escravo do sumo sacerdote é notável porque acontece no exato momento da própria prisão injusta de Jesus: ele interrompe o próprio momento de crise pra desfazer um dano causado em sua defesa. Isso mostra o quanto a recusa à violência era genuína, não só teórica.
 Complementar 2: A lista de desafios de Jesus vem de fontes bem diferentes: família, religião, amizade, governo: mostrando que a oposição raramente vem de um só lugar. Um cristão fiel deve estar preparado pra enfrentar oposição de várias direções ao mesmo tempo, não só da que já espera.
-Pra Laurinha: Jesus nunca quis se vingar de ninguém.
+Pra Laurinha: Jesus não se vingou.
 ```
 
 **12. De acordo com Mateus 5:43, 44, como devemos tratar as pessoas que se opõem a nós ou nos perseguem?**
@@ -152,7 +151,7 @@ Resposta: Jesus disse que devemos amar até mesmo as pessoas que nos perseguem, 
 
 Complementar 1: "Amar" aqui não significa concordar com a oposição nem fingir que ela não incomoda; significa recusar-se a devolver o mesmo tratamento hostil. É uma escolha de comportamento, não uma exigência de sentimento fácil.
 Complementar 2: A combinação "bondade, paciência e respeito" (1 Coríntios 13:4) dá um teste prático: dá pra perguntar, depois de qualquer interação com um opositor, se essas três coisas estiveram presentes na minha reação, independente do que a outra pessoa fez.
-Pra Laurinha: Devemos ser bondosos até com quem nos persegue.
+Pra Laurinha: Com amor, até os inimigos.
 ```
 
 **13. Por que devemos respeitar os governos mesmo quando eles se opõem a nós? (Veja também a imagem.)**
@@ -162,7 +161,7 @@ Resposta: Porque Jeová nos pede pra fazer isso (Romanos 13:1, 2). Satanás talv
 
 Complementar 1: Repare que a neutralidade política aqui não depende de o governo ser justo ou injusto: o texto assume que os governos VÃO tomar decisões que tornam a vida mais difícil, e ainda assim pede respeito. A neutralidade não é aprovação da injustiça, é recusa de tomar partido político pra corrigi-la.
 Complementar 2: João 15:19 liga a neutralidade à identidade do cristão como alguém que não faz parte do mundo (“vocês não fazem parte do mundo”): a recusa de protestar ou tomar lado político não é passividade, é a expressão prática de pertencer a um sistema diferente.
-Pra Laurinha: Respeitamos o governo mesmo quando ele erra.
+Pra Laurinha: Jeová pede que a gente respeite.
 ```
 
 **14. Do que devemos nos lembrar sobre as pessoas que hoje se opõem ao povo de Deus?**
@@ -172,7 +171,7 @@ Resposta: Algumas pessoas que antes eram opositoras do povo de Deus, com o tempo
 
 Complementar 1: O exemplo de 1 Timóteo 1:12, 13 é o próprio apóstolo Paulo, que antes perseguia os cristãos com violência. Lembrar disso muda a forma de encarar um opositor hoje: não como um inimigo permanente, mas como alguém que ainda pode mudar completamente de lado.
 Complementar 2: A repetição da palavra "paciência" três vezes na citação da irmã não é força de expressão, é o resumo prático de anos reais de espera: um lembrete de que essa paciência raramente é testada por dias, é testada por anos.
-Pra Laurinha: Quem persegue hoje pode se tornar irmão amanhã.
+Pra Laurinha: Eles podem mudar um dia.
 ```
 
 **15. Por que não seria realista tentar acabar com as injustiças que existem hoje?**
@@ -182,7 +181,7 @@ Resposta: Porque tentar resolver as injustiças de hoje só vai nos deixar sem t
 
 Complementar 1: Eclesiastes 1:15 ("o que é torto não pode ser endireitado") não é fatalismo, é um diagnóstico realista: o problema não é falta de esforço humano, é que a escala do problema (o próprio sistema de Satanás) está além do que qualquer esforço individual pode consertar.
 Complementar 2: Repare a troca de investimento que o parágrafo propõe: em vez de gastar energia CORRIGINDO o sistema, gastar energia TIRANDO pessoas dele através da pregação. É a mesma energia, redirecionada pro único lugar onde ela produz um resultado permanente.
-Pra Laurinha: Só o Reino de Jeová vai acabar com as injustiças.
+Pra Laurinha: Só Jeová vai consertar tudo.
 ```
 
 ## NÓS PODEMOS VENCER A LUTA!
@@ -196,7 +195,7 @@ Resposta: A Bíblia garante que podemos vencer a luta contra os espíritos malig
 
 Complementar 1: Repare que as DUAS táticas do estudo (destruir a união, desanimar com oposição) têm a MESMA solução declarada: fé fortalecida em Jeová e Jesus. Isso simplifica a defesa espiritual: não são duas estratégias diferentes de resistência, é uma só fé aplicada em duas frentes.
 Complementar 2: A garantia de Tiago 4:7 (“oponham-se ao Diabo, e ele fugirá de vocês”) usa um verbo de ação nossa (opor-se) ligado a uma reação garantida da parte contrária (ele foge). A vitória não depende de sermos mais fortes que Satanás, depende de resistirmos de verdade: o resto é garantido.
-Pra Laurinha: Com fé em Jeová, dá pra vencer essa luta.
+Pra Laurinha: Ter fé em Jeová.
 ```
 
 **17. O que devemos estar determinados a fazer?**
@@ -206,7 +205,7 @@ Resposta: Não queremos permitir que o Diabo acabe com nossa união ou nos desan
 
 Complementar 1: A determinação final do estudo junta as duas táticas examinadas (união e oposição) numa só decisão: não deixar o Diabo vencer por nenhuma das duas portas. Uma decisão só, tomada com antecedência, cobre as duas frentes.
 Complementar 2: Lucas 6:27, 28 pede bondade justamente com quem se opõe: o conselho final não é só "resista", é "responda com o oposto do que a oposição espera de você". Essa inversão é o que torna a determinação difícil de sustentar sem fé real.
-Pra Laurinha: Estou decidido a não deixar Satanás vencer.
+Pra Laurinha: Não deixar Satanás ganhar.
 ```
 
 @RECAP QUAL É A SUA RESPOSTA?

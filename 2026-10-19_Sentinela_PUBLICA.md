@@ -40,8 +40,7 @@ Resposta: Cada um de nós tem a responsabilidade de manter e proteger a paz que 
 
 O que aprendemos nesse trecho: o pano de fundo de toda a carta, um escravo fugitivo, um senhor ofendido, e um apóstolo que decide intervir com apelo ao amor, não com ordem.
 
-**2. O que aconteceu entre Filêmon e Onésimo?**
-
+**2. O que aconteceu entre Filêmon e Onésimo? (Filêmon 8, 9, 17)**
 ```
 O que a pergunta quer dizer: O conflito de fundo que a carta de Paulo resolve.
 O que o texto nos mostra: Filêmon, irmão fiel e amoroso, tinha um escravo, Onésimo, que fugiu pra Roma, provavelmente depois de roubá-lo (Filêmon 18). Onésimo se tornou cristão e amigo de Paulo, mas pela lei romana precisava voltar. Paulo o enviou de volta com uma carta pedindo, com base no amor, que Filêmon o recebesse bem (Filêmon 8, 9, 12, 13, 17).
@@ -49,8 +48,7 @@ Como aplicar na nossa vida: Paulo tinha autoridade pra simplesmente ordenar, mas
 Resposta: Onésimo, escravo fugitivo de Filêmon, se tornou cristão em Roma, e Paulo o enviou de volta com um apelo ao amor de Filêmon, não com uma ordem (Filêmon 8, 9, 17).
 ```
 
-**3. Por que Paulo escreveu a carta?**
-
+**3. O que pode ter deixado Paulo preocupado ao enviar Onésimo de volta? (Veja também a imagem.)**
 ```
 O que a pergunta quer dizer: O risco que Paulo via na volta de Onésimo.
 O que o texto nos mostra: Paulo sabia que a volta de Onésimo podia tirar a paz da congregação, Filêmon tinha o direito legal de puni-lo severamente, e outros podiam ter opiniões diferentes. Por isso escreveu uma carta a Filêmon e outra à congregação de Colossos (Efésios 6:21, 22; Colossenses 4:7-9).
@@ -74,8 +72,7 @@ Como aplicar na nossa vida: Você trata os que estão sob sua responsabilidade c
 Resposta: Paulo tratou Filêmon como amigo, e anciãos que fazem o mesmo com os irmãos criam um ambiente de paz na congregação (1 Pedro 5:1-3).
 ```
 
-**6. Por que todo mundo precisa de elogios?**
-
+**6. Por que é importante dar elogios?**
 ```
 O que a pergunta quer dizer: A razão de sermos incentivados a elogiar os outros.
 O que o texto nos mostra: Paulo elogiou Filêmon (Filêmon 4, 5, 7). Muitos duvidam do próprio valor, o que pode levar a se ofender fácil ou competir por reconhecimento. Elogios ajudam a reconhecer o próprio valor (Provérbios 12:25).
@@ -83,8 +80,7 @@ Como aplicar na nossa vida: A orientação é elogiar não só quando alguém fa
 Resposta: Elogios sinceros ajudam as pessoas a reconhecerem o próprio valor e se sentirem amadas (Provérbios 12:25).
 ```
 
-**7. Como o que falamos sobre uma pessoa afeta como ela é tratada?**
-
+**7. Por que precisamos ter cuidado com o que falamos sobre outros? (Filêmon 10-12)**
 ```
 O que a pergunta quer dizer: O efeito prático de falar bem ou mal de alguém.
 O que o texto nos mostra: Paulo falou bem de Onésimo (Filêmon 10-12), o que afetou como Filêmon o via. Falar bem dos irmãos ajuda outros a tratá-los com bondade; falar mal produz o efeito contrário.
@@ -92,8 +88,7 @@ Como aplicar na nossa vida: Antes de falar bem de alguém, é preciso pensar bem
 Resposta: O que falamos sobre uma pessoa influencia como outros a tratam, então falar bem dos irmãos ajuda a mantê-los bem tratados (Filêmon 10-12).
 ```
 
-**8. O que Paulo fazia com relação às qualidades dos irmãos?**
-
+**8. O que pode nos ajudar a falar bem dos irmãos? (Veja também as imagens.)**
 ```
 O que a pergunta quer dizer: O hábito que ajudava Paulo a pensar bem das pessoas.
 O que o texto nos mostra: Paulo tinha o hábito de agradecer a Jeová pelas boas qualidades de Filêmon e de outros irmãos (Filêmon 4, 5; 1 Coríntios 1:4-7; Filipenses 1:3-5). Ele sabia das fraquezas deles, mas preferia se concentrar nas qualidades.
@@ -104,10 +99,9 @@ Resposta: Paulo tinha o hábito de agradecer a Jeová pelas boas qualidades dos 
 @IMG 8 | https://cms-imgp.jw-cdn.org/img/p/2026522/univ/art/2026522_univ_cnt_2_lg.jpg | Conjunto de imagens: 1. Paulo com uma corrente presa em seu pulso, escrevendo uma carta. 2. Um irmão mais velho elogiando um jovem na frente de outras pessoas no Salão do Reino. | Assim como Paulo, pense e fale de modo positivo sobre os irmãos (Veja o parágrafo 8.)
 Comentando a imagem: no primeiro quadro, Paulo, acorrentado, escreve uma carta; no segundo, um irmão mais velho elogia um jovem publicamente no Salão do Reino. Ligada ao parágrafo 8, a sequência liga o hábito interno de Paulo à expressão externa desse hábito hoje. A lição prática é que o mesmo princípio atravessa séculos: pensar bem dos irmãos sempre termina em tratá-los bem.
 
-**9. Como Paulo tratou Filêmon apesar da própria situação difícil?**
-
+**9. Por que é impressionante o modo como Paulo falou com Filêmon?**
 ```
-O que a pergunta quer dizer: Se o estresse de Paulo afetou o tom da carta.
+O que a pergunta quer dizer: O que torna notável o tom bondoso de Paulo com Filêmon.
 O que o texto nos mostra: Paulo estava preso injustamente, sofreu naufrágio e escrevia em prisão domiciliar (Filêmon 1), mas mesmo assim tratou Filêmon com bondade e respeito.
 Como aplicar na nossa vida: Quando estamos cansados ou estressados, é fácil descontar em outros. Você consegue manter a bondade com os irmãos mesmo nos seus dias mais difíceis?
 Resposta: Mesmo numa situação pessoal difícil, Paulo tratou Filêmon com bondade e respeito, sem deixar o estresse afetar o tom da carta (Filêmon 1).
@@ -117,8 +111,7 @@ Resposta: Mesmo numa situação pessoal difícil, Paulo tratou Filêmon com bond
 
 O que aprendemos nesse trecho: como agir quando somos nós que ofendemos alguém.
 
-**10. O que o exemplo de Onésimo ensina sobre admitir um erro?**
-
+**10. O que podemos aprender com o exemplo de Onésimo?**
 ```
 O que a pergunta quer dizer: O que Onésimo fez que nem sempre é fácil de fazer.
 O que o texto nos mostra: Onésimo admitiu o erro e se esforçou pra fazer as pazes: aceitou uma viagem cara de mais de 1.400 quilômetros, dispôs-se a abrir mão da liberdade e a encarar as consequências, mesmo achando que talvez tivesse motivo pra ter fugido.
@@ -126,8 +119,7 @@ Como aplicar na nossa vida: Onésimo agiu sem garantia de que tudo terminaria be
 Resposta: Onésimo admitiu o erro e se esforçou pra reparar a situação, mesmo sem saber como Filêmon reagiria (parágrafo 10).
 ```
 
-**11. O que podemos fazer pra recuperar a paz quando ofendemos alguém?**
-
+**11. O que podemos fazer para recuperar a paz quando ofendemos alguém? (Veja também as imagens.)**
 ```
 O que a pergunta quer dizer: Os passos concretos pra reparar uma ofensa.
 O que o texto nos mostra: Dê o primeiro passo (Mateus 5:23-25): peça desculpas de coração, esteja disposto a ouvir a outra pessoa, admita o erro sem se justificar nem colocar a culpa em outros.
@@ -142,17 +134,15 @@ Comentando a imagem: no primeiro quadro, um retrato de Onésimo; no segundo, doi
 
 O que aprendemos nesse trecho: as qualidades que ajudam a perdoar quando somos nós os ofendidos.
 
-**12. O que o exemplo de Filêmon ensina sobre manter a paz quando somos ofendidos?**
-
+**12. Por que Paulo acreditava que Filêmon iria perdoar Onésimo?**
 ```
-O que a pergunta quer dizer: O que a Bíblia deixa em aberto sobre o desfecho.
+O que a pergunta quer dizer: O motivo da confiança de Paulo em Filêmon.
 O que o texto nos mostra: A Bíblia não diz se Filêmon perdoou Onésimo, mas Paulo acreditava que ele faria isso (Filêmon 17, 21), porque conhecia as qualidades de Filêmon.
 Como aplicar na nossa vida: Se você fosse Filêmon, o que faria? A pergunta vale a pena responder com honestidade, não só ler o relato.
 Resposta: Paulo confiava que as qualidades de Filêmon o ajudariam a perdoar Onésimo (Filêmon 17, 21).
 ```
 
-**13. Que qualidade de Filêmon ajudava ele a perdoar?**
-
+**13. Por que o amor é essencial para manter a paz? (Colossenses 3:14)**
 ```
 O que a pergunta quer dizer: A qualidade central por trás da capacidade de perdoar.
 O que o texto nos mostra: Filêmon amava os irmãos (Filêmon 5), o nome dele significa "amoroso". Paulo chamou o amor de "o perfeito vínculo de união" (Colossenses 3:14): quanto maior o amor por um irmão, mais fácil perdoá-lo (1 Coríntios 13:4-7).
@@ -160,17 +150,15 @@ Como aplicar na nossa vida: Se perdoar alguém está difícil, o problema pode s
 Resposta: O amor de Filêmon pelos irmãos foi o que o ajudou a perdoar, e quanto maior o amor, mais fácil é perdoar (Colossenses 3:14).
 ```
 
-**14. Que outra qualidade de Filêmon fortalece o amor?**
-
+**14. Como sabemos que Filêmon era hospitaleiro?**
 ```
-O que a pergunta quer dizer: O que, além do amor em si, ajuda a cultivá-lo.
+O que a pergunta quer dizer: O que mostra que Filêmon era hospitaleiro.
 O que o texto nos mostra: Filêmon tinha hospitalidade, cedeu a própria casa pra reuniões da congregação (Filêmon 2), e Paulo o via como hospitaleiro o bastante pra pedir hospedagem (Filêmon 22).
 Como aplicar na nossa vida: Hospitalidade, aqui, é abrir o espaço mais pessoal pra uso da congregação. Você já fez algo parecido?
 Resposta: Filêmon cedia a própria casa pras reuniões da congregação, mostrando hospitalidade concreta (Filêmon 2).
 ```
 
-**15. Como imitar a hospitalidade de Filêmon fortalece nosso amor pelos irmãos?**
-
+**15. Por que mostrar hospitalidade fortalece nosso amor por outros? (Veja também as imagens.)**
 ```
 O que a pergunta quer dizer: O efeito da hospitalidade sobre o amor.
 O que o texto nos mostra: Ser hospitaleiro ajuda a conhecer melhor os irmãos, inclusive os que parecem ter pouco em comum com a gente, o que aumenta o amor e facilita o perdão.
@@ -181,26 +169,23 @@ Resposta: A hospitalidade nos ajuda a conhecer melhor os irmãos e a fortalecer 
 @IMG 15 | https://cms-imgp.jw-cdn.org/img/p/2026522/univ/art/2026522_univ_cnt_4_lg.jpg | Conjunto de imagens: 1. Filêmon segurando a carta de Paulo. 2. Os mesmos irmãos da imagem anterior conversando de forma animada em uma recreação com outros irmãos. | Assim como Filêmon, ajude a congregação a ser unida mostrando hospitalidade (Veja o parágrafo 15.)
 Comentando a imagem: no primeiro quadro, Filêmon segura a carta de Paulo; no segundo, os mesmos irmãos aparecem numa recreação animada. Ligada ao parágrafo 15, a lição prática é que hospitalidade não é conceito abstrato, é tempo de qualidade com gente fora do círculo mais próximo.
 
-**16. O que Paulo escreveu aos colossenses que ajuda a perdoar?**
-
+**16. Qual talvez tenha sido a reação de Filêmon quando ouviu o conselho de Paulo em Colossenses 3:13?**
 ```
-O que a pergunta quer dizer: O conselho concreto que ajuda quando amar não basta pra perdoar fácil.
+O que a pergunta quer dizer: Como Filêmon talvez tenha reagido ao ouvir Colossenses 3:13 lido na congregação que se reunia na casa dele.
 O que o texto nos mostra: Paulo escreveu: “Continuem a suportar uns aos outros e a perdoar uns aos outros liberalmente” (Colossenses 3:13).
 Como aplicar na nossa vida: "Continuar a suportar" é ação contínua, não evento único. Como você tem praticado isso com um irmão específico?
-Resposta: Paulo incentiva a continuar suportando e perdoando liberalmente uns aos outros (Colossenses 3:13).
+Resposta: Se Filêmon ainda estivesse remoendo o que Onésimo tinha feito, ele sabia o que precisava fazer: continuar suportando Onésimo e perdoando liberalmente (Colossenses 3:13).
 ```
 
-**17. Como o exemplo de Jeová nos ajuda a perdoar os irmãos?**
-
+**17. O que significa ‘continuar a suportar uns aos outros’?**
 ```
-O que a pergunta quer dizer: O que o caráter de Jeová ensina sobre perdoar.
+O que a pergunta quer dizer: O sentido da expressão de Paulo em Colossenses 3:13.
 O que o texto nos mostra: Jeová é razoável, se concentra nas nossas qualidades, não nas nossas falhas (Salmo 103:13, 14), e continua nos tratando com bondade imerecida (Lamentações 3:22, 23).
 Como aplicar na nossa vida: Como a planta sem flor que lembramos como é bonita florida, lembrar das qualidades de um irmão ajuda a perdoá-lo. Que qualidade de alguém que te decepcionou você pode escolher lembrar?
-Resposta: Lembrar do exemplo paciente de Jeová, e das qualidades de um irmão, ajuda a suportar e perdoar com mais facilidade (Salmo 103:13, 14).
+Resposta: Significa ser pacientes e bondosos com os irmãos mesmo quando eles nos irritam ou ofendem, como Jeová faz com a gente (Salmo 103:13, 14).
 ```
 
-**18. O que estamos decididos a fazer pra contribuir com a paz na congregação?**
-
+**18. O que você está decidido a fazer?**
 ```
 O que a pergunta quer dizer: O resumo prático de tudo o que este estudo ensinou.
 O que o texto nos mostra: Continuar sendo bondosos, pedir desculpas, reparar o dano quando ofendermos alguém, e desenvolver um forte amor pelos irmãos que ajude a perdoá-los de coração (Salmo 37:11).

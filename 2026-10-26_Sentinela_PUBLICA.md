@@ -41,8 +41,7 @@ Resposta: Além de dizer o que João faria, Zacarias profetizou sobre três cois
 
 O que vemos aqui: Zacarias profetiza sobre um "poderoso salvador" ainda antes de Jesus nascer, e o texto explica de que exatamente esse Salvador nos livra.
 
-**2. (a) De acordo com Lucas 1:67-73, o que Deus prometeu ao seu povo? (b) Quem é o "poderoso salvador" mencionado em Lucas 1:69?**
-
+**2. (a) De acordo com Lucas 1:67-73, o que Deus prometeu ao seu povo? (b) Quem é o “poderoso salvador” mencionado em Lucas 1:69?**
 ```
 O que a pergunta quer dizer: Quando e como a promessa de um Salvador se tornou realidade.
 O que o texto nos mostra: Zacarias disse: "[Jeová] fez surgir para nós um poderoso salvador na casa de Davi" (Lucas 1:69). Esse "poderoso salvador" surgiu quando Jesus foi batizado, aos 30 anos, sendo ungido com espírito santo e se tornando o Messias (Mateus 3:16, 17).
@@ -77,8 +76,7 @@ Como aplicar na nossa vida: O resgate está disponível pra todos, mas só livra
 Resposta: Jesus nos ensinou a adorar Jeová certo e deu a vida como resgate, tornando possível o perdão quando pecamos.
 ```
 
-**6. O que Jesus vai fazer como Rei no "trono de Davi"? (Veja também a imagem.)**
-
+**6. O que Jesus vai fazer como Rei no “trono de Davi”? (Veja também a imagem.)**
 ```
 O que a pergunta quer dizer: O plano completo, não só o começo dele.
 O que o texto nos mostra: Desde 1914, Jesus reina no céu (Lucas 1:32, 33). No Armagedom, ele vai destruir os inimigos de Deus; durante o Reinado de Mil Anos, vai ressuscitar os mortos e ajudar os humanos a se tornarem perfeitos (João 5:28). No fim dos mil anos, o pecado e a morte terão acabado (1 Coríntios 15:26, 55-57), e Satanás será eliminado (Apocalipse 20:7-10).
@@ -139,8 +137,7 @@ Como aplicar na nossa vida: Preparar o caminho às vezes significa apontar pra o
 Resposta: João pregou o arrependimento, identificou Jesus como o Messias publicamente e direcionou seus próprios discípulos pra segui-lo.
 ```
 
-**13. Em que sentido a vinda do Messias seria "um amanhecer" para o povo de Deus?**
-
+**13. Em que sentido a vinda do Messias seria “um amanhecer” para o povo de Deus?**
 ```
 O que a pergunta quer dizer: A escala da tarefa que estava por trás de uma única voz.
 O que o texto nos mostra: A vinda do Messias seria "um amanhecer", um acontecimento que mudaria a vida de todas as pessoas. Essa notícia precisava chegar ao maior número possível de gente, e João sozinho não daria conta.
@@ -157,8 +154,7 @@ Como aplicar na nossa vida: Multiplicar pregadores vale mais que centralizar tud
 Resposta: Jesus pregou com compaixão genuína e treinou seus discípulos pra continuar espalhando a mensagem depois dele.
 ```
 
-**15. Por que pregar as boas novas é mais importante agora do que nunca?**
-
+**15. Por que hoje a pregação é mais importante do que nunca?**
 ```
 O que a pergunta quer dizer: O que torna a pregação de hoje mais urgente do que em qualquer outra época.
 O que o texto nos mostra: Em breve vem uma "grande tribulação, como nunca ocorreu" (Mateus 24:21). Muita gente talvez aceite as boas novas nesse período justamente porque vai se lembrar da mensagem que já pregamos hoje.

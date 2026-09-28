@@ -38,7 +38,7 @@ Complementar 1: Repare que a tática não é "convencer você a odiar Jeová" de
 
 Complementar 2: O versículo cita Satanás se disfarçando de "anjo de luz" (2 Coríntios 11:14): a tática funciona melhor quando não parece ataque, parece um pensamento razoável que "só" está questionando.
 
-Pra Laurinha: Satanás quer que a gente duvide que Jeová se importa.
+Pra Laurinha: Satanás mente sobre Jeová.
 ```
 
 **2. Por que é importante confiarmos em Jeová e Jesus?**
@@ -50,7 +50,7 @@ Complementar 1: A comparação militar é direta de propósito: numa guerra de v
 
 Complementar 2: O artigo já avisa que o próximo estudo vai tratar de duas outras táticas: “divisões dentro da congregação e oposição de pessoas de fora”. É útil ver o quadro completo, não só a peça desta semana.
 
-Pra Laurinha: A gente precisa confiar em Jeová como um soldado confia no comandante.
+Pra Laurinha: Quem confia obedece a Jeová.
 
 A nota "a" do artigo diz: "Satanás não causa diretamente todas as dificuldades que enfrentamos. Mas ele está por trás do “espírito do mundo”, que influencia as pessoas a maltratarem o povo de Deus. Então, de forma direta ou indireta, Satanás está por trás de muitos dos desafios que enfrentamos em nossa guerra espiritual.: 1 Cor. 2:12; 1 João 5:19."
 ```
@@ -66,7 +66,7 @@ Complementar 1: Repare que a pergunta de Satanás distorce o que Jeová realment
 
 Complementar 2: O detalhe "a Pessoa que tinha dado tudo pra eles" pesa: Adão e Eva não tinham motivo real de queixa, tinham um jardim inteiro. A tática de Satanás não precisa de motivo real, só precisa plantar a dúvida.
 
-Pra Laurinha: Satanás mentiu pra Eva sobre o que Jeová tinha dito.
+Pra Laurinha: Satanás mentiu pra Eva.
 ```
 
 **4. Satanás queria que Jó acreditasse em que mentiras?**
@@ -78,7 +78,7 @@ Complementar 1: Note que os "amigos" de Jó não estavam mentindo por maldade co
 
 Complementar 2: A palavra "Amigo" maiúscula na descrição de Jeová não é acidente: o ponto do relato de Jó inteiro é que a amizade dele com Jeová sobreviveu ao pior sofrimento que Satanás conseguiu causar.
 
-Pra Laurinha: Jó continuou amigo de Jeová mesmo sofrendo muito.
+Pra Laurinha: Que Jeová não amava Jó.
 ```
 
 **5. Como Satanás tentou impedir as pessoas de seguir a Jesus? (Mateus 11:19)**
@@ -90,7 +90,7 @@ Complementar 1: Mateus 11:19 registra que chamavam Jesus de “homem glutão e d
 
 Complementar 2: O fato de mentiras terem convencido gente suficiente pra matar o próprio Filho de Deus mostra o alcance real dessa tática: não é um truque pequeno, é capaz de mover multidões contra a própria verdade.
 
-Pra Laurinha: Mentiras sobre Jesus fizeram as pessoas o odiarem.
+Pra Laurinha: Satanás contou mentiras sobre Jesus.
 ```
 
 **6-7. De que maneiras Satanás tentou parar o trabalho de pregação dos primeiros discípulos de Jesus?**
@@ -102,7 +102,7 @@ Complementar 1: Repare a ordem das duas táticas: primeiro mentira (sobre a ress
 
 Complementar 2: "A maioria continuou firme" é uma admissão honesta do próprio texto: nem todos resistiram. Isso tira a pressão de achar que resistir é automático pra quem serve a Jeová; é uma escolha ativa, repetida.
 
-Pra Laurinha: Satanás tentou parar os discípulos com mentira e depois com medo.
+Pra Laurinha: Com mentiras e com medo.
 ```
 
 ## SATANÁS CONTINUA CONTANDO MENTIRAS SOBRE JEOVÁ E JESUS
@@ -118,7 +118,7 @@ Complementar 1: Repare o mecanismo específico: não é ensinar "Deus não exist
 
 Complementar 2: O resultado prático dessa mentira é medido em Marcos 12:29, 30: Jesus mesmo disse que o maior mandamento é amar “Jeová, seu Deus”: uma doutrina que apaga essa distinção rouba das pessoas o próprio ponto de partida da adoração verdadeira.
 
-Pra Laurinha: A religião falsa esconde quem é o Pai de Jesus.
+Pra Laurinha: A religião falsa mente sobre Jeová.
 ```
 
 **9. Por meio da religião falsa, Satanás tem impedido as pessoas de aprender o quê? (Jeremias 23:26, 27)**
@@ -130,7 +130,7 @@ Complementar 1: O raciocínio do artigo é simples e forte: pra ser amigo de alg
 
 Complementar 2: A mentira de que Jeová causa sofrimento tem um efeito duplo: além de ser falsa, ela ativamente afasta quem mais precisaria se aproximar dele num momento difícil: a pessoa machucada foge de quem, na verdade, quer ajudá-la.
 
-Pra Laurinha: Satanás esconde o nome de Jeová das pessoas.
+Pra Laurinha: O nome de Jeová.
 ```
 
 **10. O que poderia fazer um servo de Jeová ficar com raiva dele?**
@@ -142,7 +142,7 @@ Complementar 1: Repare que Provérbios 19:3 descreve exatamente esse mecanismo: 
 
 Complementar 2: A pergunta retórica do artigo, "por que eu deveria continuar obedecendo a Jeová? Isso não me ajuda em nada!", é deliberadamente colocada na primeira pessoa: é pra o leitor reconhecer esse pensamento se ele já apareceu, não só observá-lo de fora.
 
-Pra Laurinha: Achar que Jeová não se importa é a tática de Satanás.
+Pra Laurinha: Achar que Jeová causa sofrimento.
 ```
 
 **11. Como Satanás tem criado dúvidas sobre os padrões de Jeová? (Veja também a imagem.)**
@@ -154,7 +154,7 @@ Complementar 1: A imagem desta parte mostra uma irmã vendo, no mesmo rolar de t
 
 Complementar 2: Isaías 5:20 é o texto mais direto do artigo aqui: “Ai dos que dizem que o bom é mau e que o mau é bom”. Confundir os rótulos é mais eficaz que negar os padrões abertamente.
 
-Pra Laurinha: As redes sociais confundem o que é certo e errado.
+Pra Laurinha: Ele chama o errado de certo.
 ```
 
 **12. Por que não devemos dar ouvidos às ideias do mundo de Satanás?**
@@ -166,7 +166,7 @@ Complementar 1: Repare que Shannon não descreve uma decisão única e dramátic
 
 Complementar 2: O texto de Tiago 4:4 chama amizade com o mundo de "inimizade com Deus": uma linguagem forte de propósito, porque a experiência de Shannon mostra que a mudança de pensamento vem antes de qualquer decisão consciente de "trair" a amizade com Jeová.
 
-Pra Laurinha: Amizades erradas mudam o jeito de pensar aos poucos.
+Pra Laurinha: O mundo ensina coisas erradas.
 ```
 
 **13. O que você aprendeu com a experiência de Shannon?**
@@ -178,7 +178,7 @@ Complementar 1: A nota de rodapé "c" do artigo diz: "Para encontrar mais ajudas
 
 Complementar 2: O passo que mais se destaca na experiência de Shannon é pedir ajuda: não foi um esforço solitário de força de vontade. Ela buscou pais, anciãos e irmãs maduras, não tentou resolver sozinha. Essa é a diferença prática entre a teoria e a experiência real.
 
-Pra Laurinha: Shannon pediu ajuda pra voltar a se achegar a Jeová.
+Pra Laurinha: Pedir ajuda faz bem.
 ```
 
 ## ESTEJA CONVENCIDO DE QUE JEOVÁ E JESUS AMAM MUITO VOCÊ
@@ -194,7 +194,7 @@ Complementar 1: A imagem desta parte mostra a mesma irmã da primeira imagem ago
 
 Complementar 2: Atos 17:11 elogia os bereanos porque “examinavam cuidadosamente as Escrituras, todo dia” pra ver se o que ouviam era verdade: o antídoto contra desinformação nunca foi ingenuidade, foi verificação ativa contra a fonte confiável.
 
-Pra Laurinha: Estudar a Bíblia protege contra as mentiras de Satanás.
+Pra Laurinha: Estudar a Bíblia me protege.
 ```
 
 **15. Como podemos fortalecer nossa confiança de que Jeová e Jesus nos amam muito?**
@@ -206,7 +206,7 @@ Complementar 1: A comparação com o amor de mãe em Isaías 49:15 é escolhida 
 
 Complementar 2: "Propriedade especial" em Malaquias 3:16, 17 não é linguagem de posse fria: no contexto, descreve algo que se guarda com cuidado extremo, como um tesouro que não se abre mão.
 
-Pra Laurinha: Jeová ama a gente mais do que uma mãe ama um filho.
+Pra Laurinha: Jeová me ama muito.
 ```
 
 **16. Por que é bom lembrar das vezes que Jeová já ajudou a nós e a outros? (Salmo 118:5, 6)**
@@ -218,7 +218,7 @@ Complementar 1: Salmo 118:6 completa o raciocínio: “Jeová está do meu lado;
 
 Complementar 2: Perguntar a outros irmãos sobre a ajuda deles (Provérbios 22:17, “preste atenção e escute as palavras dos sábios”) multiplica a evidência disponível: você não depende só da própria memória, tem acesso à experiência de toda a congregação.
 
-Pra Laurinha: Lembrar da ajuda de Jeová no passado dá confiança pro futuro.
+Pra Laurinha: Jeová já me ajudou antes.
 ```
 
 **17. De acordo com João 10:29, que garantia Jesus dá a todos aqueles que continuam amando a ele e a seu Pai?**
@@ -230,7 +230,7 @@ Complementar 1: “Ninguém pode arrancá-las da mão do Pai” (João 10:29) é
 
 Complementar 2: Repare que a garantia tem uma condição embutida: "continuam amando a ele e a seu Pai". Não é proteção automática independente da nossa escolha; é proteção garantida enquanto a amizade continuar ativa dos dois lados.
 
-Pra Laurinha: Ninguém consegue nos tirar da mão de Jeová.
+Pra Laurinha: Ninguém me tira de Jeová.
 ```
 
 **18. O que vamos ver no próximo estudo?**
@@ -240,7 +240,7 @@ Resposta: Outras duas táticas que Satanás usa pra tentar destruir nossa amizad
 
 Complementar 1: O artigo termina abrindo o próximo tema de propósito, deixando claro que resistir a UMA tática (dúvida sobre o amor de Jeová) não fecha o assunto: há mais frentes de ataque, e a série continua tratando delas uma a uma.
 
-Pra Laurinha: No próximo estudo vamos ver mais táticas de Satanás.
+Pra Laurinha: Outras armas de Satanás.
 ```
 
 @RECAP COMO RESPONDERIA?
