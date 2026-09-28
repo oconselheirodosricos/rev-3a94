@@ -112,7 +112,9 @@ Comentando a imagem: três cenas da irmã Wood, pregando de casa em casa, fazend
 @COMENTARIO
 Continua o estudo do livro [*Ande Corajosamente com Deus*](https://www.jw.org/finder?wtlocale=T&pub=wcg), agora no capítulo 11, sobre Moisés diante de Faraó. O fio que liga este capítulo à leitura da semana é o mesmo tema da proteção de Jeová em meio ao perigo real.
 @HISTORIA Moisés — “Apresente-se a Faraó”
-**Para considerar:** ***De que maneiras Moisés mostrou coragem nessa época de sua vida?*** Moisés era um novo homem. Com cerca de 80 anos, tinha passado os últimos 40 como pastor pro rebanho do sogro. Jeová o chamou de dentro de um espinheiro em chamas, mandando que voltasse ao Egito pra libertar o povo, e revelou um aspecto do significado do seu próprio nome: "Eu Me Tornarei O Que Eu Decidir Me Tornar". Moisés se sentia inseguro, mas Jeová deu a ele a capacidade de realizar milagres e um porta-voz, o irmão Arão. De volta ao Egito, vieram as pragas, uma a uma, cada uma humilhando um aspecto da religião egípcia, até Faraó finalmente ceder na décima praga e libertar Israel: mas mudou de ideia e foi atrás deles com o exército. Às margens do Mar Vermelho, Jeová abriu o mar em solo seco; Israel atravessou, e quando os egípcios foram atrás, Jeová fechou as águas, destruindo o exército mais poderoso do mundo. Moisés liderou o povo pelos 40 anos seguintes, até morrer aos 120 anos.
+@HBLOCO Para considerar
+@HITEM De que maneiras Moisés mostrou coragem nessa época de sua vida?
+Resposta: Moisés era um novo homem. Com cerca de 80 anos, tinha passado os últimos 40 como pastor pro rebanho do sogro. Jeová o chamou de dentro de um espinheiro em chamas, mandando que voltasse ao Egito pra libertar o povo, e revelou um aspecto do significado do seu próprio nome: "Eu Me Tornarei O Que Eu Decidir Me Tornar". Moisés se sentia inseguro, mas Jeová deu a ele a capacidade de realizar milagres e um porta-voz, o irmão Arão. De volta ao Egito, vieram as pragas, uma a uma, cada uma humilhando um aspecto da religião egípcia, até Faraó finalmente ceder na décima praga e libertar Israel: mas mudou de ideia e foi atrás deles com o exército. Às margens do Mar Vermelho, Jeová abriu o mar em solo seco; Israel atravessou, e quando os egípcios foram atrás, Jeová fechou as águas, destruindo o exército mais poderoso do mundo. Moisés liderou o povo pelos 40 anos seguintes, até morrer aos 120 anos.
 @HIMG  | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_1_lg.jpg | Moisés e Arão diante de Faraó e de membros da corte egípcia. |
 Comentando a imagem: Moisés e Arão diante de Faraó e da corte egípcia. A lição prática é o "vez após vez": a coragem de Moisés não foi um gesto único, foi voltar repetidamente ao mesmo confronto, sem saber quantas vezes ainda seriam necessárias.
 @HLEIA Leia o relato na Bíblia: Êxodo 2:15–5:23; 7:1–11:10; 12:29-41; 13:17–14:31; Deuteronômio 29:2, 3; 34:5-7
@@ -128,16 +130,27 @@ Resposta: Cada praga atingiu diretamente um deus específico. A transformação 
 
 @HQ 4. O que indica que o caminho que Jeová abriu era largo o suficiente para todo o povo passar, e quantos israelitas devem ter atravessado o Mar Vermelho? (it “Êxodo” §§ 46-51) B
 Resposta: O tamanho da operação exigia um canal largo. Como o povo atravessou numa só noite, o canal provavelmente teve mais de um quilômetro de largura: precisava caber toda a nação com bagagem e rebanhos, e depois o exército egípcio inteiro que foi atrás. A Bíblia não dá uma cifra exata, mas estimativas apontam pra possivelmente três milhões de pessoas atravessando até a manhã.
-@HIMG A | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_2_lg.jpg | Antigo relevo mostrando um dos Faraós que viveram depois do tempo de Moisés. | Antigo relevo mostrando um dos Faraós que viveram depois do tempo de Moisés
+@HIMG A | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_2_lg.jpg | | Antigo relevo mostrando um dos Faraós que viveram depois do tempo de Moisés
 Comentando a imagem: um relevo antigo mostra um dos faraós que viveram depois de Moisés, já que não existe registro de imagem do faraó específico do Êxodo. Ligada à pergunta 2 de "Analise mais a fundo", sobre por que as pessoas tinham medo de Faraó.
-@HIMG B | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_3_lg.jpg | Mar Vermelho visto da costa da península do Sinai, onde os israelitas provavelmente fizeram a travessia. | Mar Vermelho visto da costa da península do Sinai, onde os israelitas provavelmente fizeram a travessia
+@HIMG B | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_3_lg.jpg | | Mar Vermelho visto da costa da península do Sinai, onde os israelitas provavelmente fizeram a travessia
 Comentando a imagem: uma foto real do Mar Vermelho vista da costa da península do Sinai. Ligada à pergunta 4 de "Analise mais a fundo", sobre a largura do caminho que Jeová abriu.
 @HIMG C | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cfb_001_lg.jpg | Conjunto de imagens: Uma irmã experiente ajudando outra irmã a ter mais habilidade e confiança no ministério. As próximas três imagens mostram as cenas separadamente. |
 Comentando a imagem: capa de uma sequência de cenas mostrando uma irmã experiente ajudando outra a ganhar habilidade e confiança no ministério. Ligada à pergunta de "Medite no que aprendeu" sobre como podemos ajudar nossos irmãos hoje.
 
-@HREFLEXAO
-Medite no que aprendeu: ***Como o exemplo de coragem de Moisés nos fortalece quando achamos que não somos qualificados para cumprir uma designação de Jeová?*** (Êxo. 4:10; 7:6, 7) Moisés genuinamente não se achava capaz (Êxodo 4:10), e Jeová deu a ele um ajudante e a capacidade de realizar milagres, ferramentas concretas pra missão concreta (Êxodo 4:14-17). ***Assim como Arão ajudou Moisés a cumprir sua designação com coragem, como podemos ajudar nossos irmãos hoje?*** (Êxo. 4:14-16) C Aceitando ser o apoio prático de alguém inseguro numa designação (Êxodo 4:14-16). ***De que maneiras você pode imitar a coragem de Moisés nesse relato?*** Voltar a uma tarefa difícil mais de uma vez, mesmo depois de resultados ruins nas tentativas anteriores, do jeito que Moisés voltou a Faraó praga após praga sem desistir.
-Pense no quadro completo: ***O que esse relato me ensina sobre Jeová?*** Que ele equipa quem se sente despreparado. ***Como esse relato está relacionado com o propósito de Jeová?*** A libertação do Egito formou a nação através da qual viria o Messias. ***Quando Moisés for ressuscitado, o que eu gostaria de perguntar para ele sobre esse período de sua vida?*** Uma pergunta possível: o que exatamente mudou nele entre o Moisés que pediu a Jeová que enviasse “qualquer outro” (Êxodo 4:13) e o Moisés que voltou a Faraó dez vezes seguidas sem desistir.
+@HBLOCO Medite no que aprendeu
+@HITEM Como o exemplo de coragem de Moisés nos fortalece quando achamos que não somos qualificados para cumprir uma designação de Jeová? (Êxo. 4:10; 7:6, 7)
+Resposta: Moisés genuinamente não se achava capaz (Êxodo 4:10), e Jeová deu a ele um ajudante e a capacidade de realizar milagres, ferramentas concretas pra missão concreta (Êxodo 4:14-17).
+@HITEM Assim como Arão ajudou Moisés a cumprir sua designação com coragem, como podemos ajudar nossos irmãos hoje? (Êxo. 4:14-16) C
+Resposta: Aceitando ser o apoio prático de alguém inseguro numa designação (Êxodo 4:14-16).
+@HITEM De que maneiras você pode imitar a coragem de Moisés nesse relato?
+Resposta: Voltar a uma tarefa difícil mais de uma vez, mesmo depois de resultados ruins nas tentativas anteriores, do jeito que Moisés voltou a Faraó praga após praga sem desistir.
+@HBLOCO Pense no quadro completo
+@HITEM O que esse relato me ensina sobre Jeová?
+Resposta: Que ele equipa quem se sente despreparado.
+@HITEM Como esse relato está relacionado com o propósito de Jeová?
+Resposta: A libertação do Egito formou a nação através da qual viria o Messias.
+@HITEM Quando Moisés for ressuscitado, o que eu gostaria de perguntar para ele sobre esse período de sua vida?
+Resposta: Uma pergunta possível: o que exatamente mudou nele entre o Moisés que pediu a Jeová que enviasse “qualquer outro” (Êxodo 4:13) e o Moisés que voltou a Faraó dez vezes seguidas sem desistir.
 @APRENDAMAIS Aprenda mais
 Veja como o significado do nome de Jeová pode ajudar crianças pequenas a ser corajosas. Vídeo *O nome de Jeová* (1:54).
 O que Moisés aprendeu sobre as qualidades de Jeová com as experiências que passou? "Conheça os caminhos de Jeová" (w05 15/5 20-25).

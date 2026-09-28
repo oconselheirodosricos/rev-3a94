@@ -10,7 +10,7 @@
 @OBJETIVO Aprender a dar valor ao presente da salvação, ao privilégio de servir a Jeová e à responsabilidade de pregar.
 
 @ABERTURA Preparando a Mente e o Coração
-@ISCA Um casal idoso demais pra ter filhos recebe um bebê, e o pai, ao encher-se de espírito santo, não fala sobre a criança: profetiza sobre um Salvador que ainda nem tinha nascido. As palavras de Zacarias sobre João Batista guardam três coisas que valem pra você hoje. Você já parou pra separar, na sua vida, o que é presente recebido, o que é privilégio de servir, e o que é responsabilidade de anunciar?
+@ISCA Um casal idoso demais pra ter filhos recebe um bebê, e o pai, cheio de espírito santo, diz que o menino ajudaria as pessoas a se arrepender e a estar preparadas para seguir o Messias, e vai além: profetiza sobre o “poderoso salvador” que ainda nem tinha nascido. As palavras de Zacarias sobre João Batista guardam três coisas que valem pra você hoje. Você já parou pra separar, na sua vida, o que é presente recebido, o que é privilégio de servir, e o que é responsabilidade de anunciar?
 @RESUMO Este estudo é sobre a profecia de Zacarias em Lucas 1:67-79, feita quando seu filho João (o futuro Batista) ainda era recém-nascido. As palavras de Zacarias trazem três coisas que devemos dar valor: o presente da salvação, que veio por meio do "poderoso salvador" prometido, Jesus (parágrafos 1-6); o privilégio de "prestar destemidamente serviço sagrado" a Jeová, sem medo da morte nem medo de sermos rejeitados por sermos pecadores (parágrafos 7-11); e a responsabilidade de pregar, o mesmo papel que João cumpriu ao apontar pra Jesus, e que agora passa pra nós, porque em breve vem a grande tribulação (parágrafos 12-16).
 @ENTENDENDO Entendendo o Estudo desta Semana
 - O que este artigo está tratando | A profecia de Zacarias sobre seu filho João, e três coisas que devemos valorizar hoje: o presente da salvação, o privilégio de servir a Jeová sem medo, e a responsabilidade de continuar pregando antes da grande tribulação.
@@ -44,9 +44,9 @@ O que vemos aqui: Zacarias profetiza sobre um "poderoso salvador" ainda antes de
 **2. (a) De acordo com Lucas 1:67-73, o que Deus prometeu ao seu povo? (b) Quem é o “poderoso salvador” mencionado em Lucas 1:69?**
 ```
 O que a pergunta quer dizer: Quando e como a promessa de um Salvador se tornou realidade.
-O que o texto nos mostra: Zacarias disse: "[Jeová] fez surgir para nós um poderoso salvador na casa de Davi" (Lucas 1:69). Esse "poderoso salvador" surgiu quando Jesus foi batizado, aos 30 anos, sendo ungido com espírito santo e se tornando o Messias (Mateus 3:16, 17).
+O que o texto nos mostra: Deus tinha prometido dar ao seu povo um presente maravilhoso, a salvação. Zacarias disse: "[Jeová] fez surgir para nós um poderoso salvador na casa de Davi" (Lucas 1:69). Esse "poderoso salvador" surgiu quando Jesus foi batizado, aos 30 anos, sendo ungido com espírito santo e se tornando o Messias (Mateus 3:16, 17).
 Como aplicar na nossa vida: Jeová não precisa que a profecia se cumpra na hora pra ela ser digna de fé. Você confia em promessas de Jeová que ainda não viu se cumprirem?
-Resposta: Jeová cumpriu a promessa quando Jesus foi batizado e ungido com espírito santo, tornando-se oficialmente o Messias.
+Resposta: (a) Deus tinha prometido dar ao seu povo um presente maravilhoso: a salvação. (b) O “poderoso salvador” é o Messias, Jesus, que surgiu quando foi batizado e ungido com espírito santo (Lucas 1:69; Mateus 3:16, 17).
 ```
 
 **3. De que inimigos os judeus precisavam ser salvos?**
@@ -142,7 +142,7 @@ Resposta: João pregou o arrependimento, identificou Jesus como o Messias public
 O que a pergunta quer dizer: A escala da tarefa que estava por trás de uma única voz.
 O que o texto nos mostra: A vinda do Messias seria "um amanhecer", um acontecimento que mudaria a vida de todas as pessoas. Essa notícia precisava chegar ao maior número possível de gente, e João sozinho não daria conta.
 Como aplicar na nossa vida: Reconhecer o próprio limite é o que abre espaço pra outros ajudarem. Você já tentou pregar sozinho algo que precisa do esforço de toda a congregação?
-Resposta: Porque a mensagem era grande demais pra uma só pessoa espalhar; era preciso muito mais gente pregando.
+Resposta: No sentido de que seria “o início de uma nova era, um acontecimento marcante que mudaria a vida de todas as pessoas”.
 ```
 
 **14. Que trabalho importante Jesus e seus discípulos fizeram? (Isaías 61:1, 2)**
