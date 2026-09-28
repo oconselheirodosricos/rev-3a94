@@ -6,7 +6,7 @@
 
 **Texto-base:** “Prefiro lhe fazer um apelo à base do amor.” — FILÊM. 9. [(ler)](https://www.jw.org/finder?wtlocale=T&pub=nwtsty&bible=57001009)
 
-@CANTICO 106 | Amor, a qualidade que é sem igual
+@CANTICO 106 | Amor — a qualidade que é sem igual
 @OBJETIVO Ver que lições aprendemos com Paulo, Onésimo e Filêmon sobre conviver em paz com os irmãos.
 
 @ABERTURA Preparando a Mente e o Coração

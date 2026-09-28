@@ -38,7 +38,7 @@ Comentando a imagem: dentro de um carro, uma irmã mais experiente mostra pra um
 @FONTE Jeremias 44:18; Estudo Perspicaz das Escrituras, verbete "Obstinação" § 4
 @COMENTARIO
 O programa traz duas perguntas, cada uma com campo de resposta próprio: a pergunta específica da semana e a pergunta fixa sobre as joias espirituais.
-@PERGUNTA Jer. 44:18: Os israelitas disseram que estavam sofrendo porque tinham deixado de "fazer sacrifícios à Rainha do Céu". Por que eles não podiam dizer isso? (it "Obstinação" § 4)
+@PERGUNTA Jer. 44:18 — Os israelitas disseram que estavam sofrendo porque tinham deixado de “fazer sacrifícios à Rainha do Céu”. Por que eles não podiam dizer isso? (it “Obstinação” § 4)
 @RESPOSTA O versículo mostra a lógica invertida do povo: "Depois que deixamos de fazer sacrifícios à Rainha do Céu... começou a nos faltar tudo, e fomos eliminados pela espada e pela fome." O Estudo Perspicaz, no verbete "Obstinação" (§4), trata desse tipo de raciocínio: o povo invertia causa e efeito, atribuindo a um suposto abandono do ídolo os desastres que na verdade foram causados PELA adoração a ele.
 @PERGUNTA Que joias espirituais você encontrou na leitura da Bíblia desta semana?
 @RESPOSTA As joias listadas abaixo são a resposta a essa pergunta.

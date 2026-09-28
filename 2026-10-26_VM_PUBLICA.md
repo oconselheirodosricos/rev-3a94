@@ -39,7 +39,7 @@ Comentando a imagem: uma jovem segura uma foto antiga da família enquanto a TV 
 @FONTE Jeremias 48:6; Estudo Perspicaz das Escrituras, verbete "Junípero" n.º 2
 @COMENTARIO
 O programa traz duas perguntas, cada uma com campo de resposta próprio: a pergunta específica da semana e a pergunta fixa sobre as joias espirituais.
-@PERGUNTA Jer. 48:6: Em que sentido os moabitas se tornariam "como um junípero no deserto"? (it "Junípero" n.º 2)
+@PERGUNTA Jer. 48:6 — Em que sentido os moabitas se tornariam “como um junípero no deserto”? (it “Junípero” n.º 2)
 @RESPOSTA O versículo diz: “Fujam! Salvem a sua vida! Tornem-se como um junípero no deserto.” O junípero (ou tamargueira) é um arbusto resistente que sobrevive em condições áridas, isolado, sem a proteção de uma floresta ao redor: a imagem descreve os moabitas fugindo sozinhos pro deserto, desamparados, o oposto exato da vida estável e cheia de bens que tinham antes do julgamento chegar (Jeremias 48:7, 11).
 @PERGUNTA Que joias espirituais você encontrou na leitura da Bíblia desta semana?
 @RESPOSTA As joias listadas abaixo são a resposta a essa pergunta.
@@ -82,7 +82,7 @@ A designação oficial é "Incentive seu estudante a orar mais vezes", ligada à
 
 @SECAO NOSSA VIDA CRISTÃ
 
-@CANTICO 158 | 'Não vai se atrasar!' | transição para Nossa Vida Cristã
+@CANTICO 158 | ‘Não vai se atrasar!’ | transição para Nossa Vida Cristã
 
 @PARTE 7. Necessidades locais | 15 min
 @COMENTARIO
@@ -118,7 +118,7 @@ O que a pergunta quer dizer: Se a mentira de Raabe pros soldados do rei contradi
 O que o texto nos mostra: A Sentinela de 1.º de dezembro de 2004 explica: “Devido à fé que havia adquirido em Jeová, Raabe protegeu os espiões... ela não tinha nenhuma obrigação de informar aos homens que procuravam prejudicar o povo de Deus onde os espiões se encontravam.” Por isso, “Raabe foi 'declarada justa pelas obras', incluindo o ato de enganar os emissários do rei”.
 Como aplicar na nossa vida: Não existe obrigação de entregar informação sensível a quem só vai usá-la pra prejudicar o povo de Jeová. Você já precisou proteger informação sobre um irmão ou irmã diante de alguém hostil à congregação?
 Resposta: Não foi errado porque Raabe não tinha obrigação nenhuma de ajudar quem queria prejudicar o povo de Jeová; a Bíblia trata essa escolha como parte do que a tornou justa, não como um mal necessário.
-@HIMG A | https://cms-imgp.jw-cdn.org/img/p/1102025914/univ/art/1102025914_univ_cnt_2_xl.jpg | Um campo de linho.
+@HIMG A | https://cms-imgp.jw-cdn.org/img/p/1102025914/univ/art/1102025914_univ_cnt_2_xl.jpg | Um campo de linho. | Um campo de linho
 Comentando a imagem: um campo inteiro de linho em cultivo, mostrando a planta da qual as hastes do terraço de Raabe vinham. Ligada à pergunta 3 de "Analise mais a fundo", a imagem ajuda a visualizar que o esconderijo dos espiões era feito do material mais comum e menos suspeito possível numa casa daquela época.
 @HIMG B | https://cms-imgp.jw-cdn.org/img/p/1102025914/univ/art/1102025914_univ_cnt_3_xl.jpg | Raabe dando orientações a dois dos homens do rei.
 Comentando a imagem: Raabe fala com dois homens do rei de Jericó, orientando-os (com informação falsa) sobre o paradeiro dos espiões que ela já tinha escondido. Ligada à pergunta 4 de "Analise mais a fundo", a cena mostra o momento exato da coragem de Raabe.

@@ -38,7 +38,7 @@ Comentando a imagem: um casal jovem visita um irmão idoso hospitalizado, o mais
 @FONTE Jeremias 40:12; Deuteronômio 8:6-8; A Sentinela de 15 de junho de 2006, página 16, parágrafo 4
 @COMENTARIO
 O programa traz duas perguntas, cada uma com campo de resposta próprio: a pergunta específica da semana e a pergunta fixa sobre as joias espirituais.
-@PERGUNTA Jeremias 40:12: Como este versículo confirma que Jeová deu ao seu povo a boa terra descrita em Deuteronômio 8:6-8? (w06 15/6 16 § 4)
+@PERGUNTA Jer. 40:12 — Como este versículo confirma que Jeová deu ao seu povo a boa terra descrita em Deuteronômio 8:6-8? (w06 15/6 16 § 4)
 @RESPOSTA Jeremias 40:12 registra que os judeus espalhados por outras terras, ao saberem que Gedalias tinha sido nomeado governador, voltaram a Judá e “recolheram vinho e frutas de verão em quantidade muito grande”. Deuteronômio 8:7, 8 já tinha prometido “uma terra de correntes de água, de fontes e de nascentes . . . uma terra de trigo e cevada, de videiras, figueiras e romãzeiras, uma terra de azeite e mel”. Mesmo depois da devastação da guerra, a terra ainda produzia fartura assim que teve um pouco de paz.
 @PERGUNTA Que joias espirituais você encontrou na leitura da Bíblia desta semana?
 @RESPOSTA As joias listadas abaixo são a resposta a essa pergunta.
@@ -128,11 +128,11 @@ Resposta: Cada praga atingiu diretamente um deus específico. A transformação 
 
 @HQ 4. O que indica que o caminho que Jeová abriu era largo o suficiente para todo o povo passar, e quantos israelitas devem ter atravessado o Mar Vermelho? (it “Êxodo” §§ 46-51) B
 Resposta: O tamanho da operação exigia um canal largo. Como o povo atravessou numa só noite, o canal provavelmente teve mais de um quilômetro de largura: precisava caber toda a nação com bagagem e rebanhos, e depois o exército egípcio inteiro que foi atrás. A Bíblia não dá uma cifra exata, mas estimativas apontam pra possivelmente três milhões de pessoas atravessando até a manhã.
-@HIMG A | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_2_lg.jpg | Antigo relevo mostrando um dos Faraós que viveram depois do tempo de Moisés. | Imagem A: Antigo relevo mostrando um dos Faraós que viveram depois do tempo de Moisés (crédito: PRISMA ARCHIVO/Alamy Stock Photo)
+@HIMG A | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_2_lg.jpg | Antigo relevo mostrando um dos Faraós que viveram depois do tempo de Moisés. | Antigo relevo mostrando um dos Faraós que viveram depois do tempo de Moisés
 Comentando a imagem: um relevo antigo mostra um dos faraós que viveram depois de Moisés, já que não existe registro de imagem do faraó específico do Êxodo. Ligada à pergunta 2 de "Analise mais a fundo", sobre por que as pessoas tinham medo de Faraó.
-@HIMG B | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_3_lg.jpg | Mar Vermelho visto da costa da península do Sinai, onde os israelitas provavelmente fizeram a travessia. | Imagem B: Mar Vermelho visto da costa da península do Sinai, onde os israelitas provavelmente fizeram a travessia
+@HIMG B | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_3_lg.jpg | Mar Vermelho visto da costa da península do Sinai, onde os israelitas provavelmente fizeram a travessia. | Mar Vermelho visto da costa da península do Sinai, onde os israelitas provavelmente fizeram a travessia
 Comentando a imagem: uma foto real do Mar Vermelho vista da costa da península do Sinai. Ligada à pergunta 4 de "Analise mais a fundo", sobre a largura do caminho que Jeová abriu.
-@HIMG C | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cfb_001_lg.jpg | Conjunto de imagens: Uma irmã experiente ajudando outra irmã a ter mais habilidade e confiança no ministério. As próximas três imagens mostram as cenas separadamente. | Imagem C
+@HIMG C | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cfb_001_lg.jpg | Conjunto de imagens: Uma irmã experiente ajudando outra irmã a ter mais habilidade e confiança no ministério. As próximas três imagens mostram as cenas separadamente. |
 Comentando a imagem: capa de uma sequência de cenas mostrando uma irmã experiente ajudando outra a ganhar habilidade e confiança no ministério. Ligada à pergunta de "Medite no que aprendeu" sobre como podemos ajudar nossos irmãos hoje.
 
 @HREFLEXAO

@@ -42,7 +42,7 @@ Comentando a imagem: uma jovem seguraura uma foto antiga da família enquanto a 
 @FONTE Jeremias 48:6; Estudo Perspicaz das Escrituras, verbete "Junípero" n.º 2
 @COMENTARIO
 O programa traz duas perguntas, cada uma com campo de resposta próprio: a pergunta específica da semana e a pergunta fixa sobre as joias espirituais.
-@PERGUNTA Jer. 48:6: Em que sentido os moabitas se tornariam "como um junípero no deserto"? (it "Junípero" n.º 2)
+@PERGUNTA Jer. 48:6 — Em que sentido os moabitas se tornariam “como um junípero no deserto”? (it “Junípero” n.º 2)
 @RESPOSTA O versículo diz: “Fujam! Salvem a sua vida! Tornem-se como um junípero no deserto.” O junípero (ou tamargueira) é um arbusto resistente que sobrevive em condições áridas, isolado, sem a proteção de uma floresta ao redor: a imagem descreve os moabitas fugindo sozinhos pro deserto, desamparados, cada um cuidando da própria sobrevivência sem contar com ninguém, o oposto exato da vida estável e cheia de bens que tinham antes do julgamento chegar (Jeremias 48:7, 11).
 @PERGUNTA Que joias espirituais você encontrou na leitura da Bíblia desta semana?
 @RESPOSTA As joias listadas abaixo são a resposta a essa pergunta.
@@ -92,7 +92,7 @@ A designação oficial é "Incentive seu estudante a orar mais vezes", ligada à
 
 @SECAO NOSSA VIDA CRISTÃ
 
-@CANTICO 158 | 'Não vai se atrasar!' | transição para Nossa Vida Cristã
+@CANTICO 158 | ‘Não vai se atrasar!’ | transição para Nossa Vida Cristã
 
 @PARTE 7. Necessidades locais | 15 min
 @COMENTARIO
@@ -124,7 +124,7 @@ Complementar 2: O detalhe de que o esconderijo era um trabalho doméstico comum,
 Resposta: A Sentinela de 1.º de dezembro de 2004 responde diretamente: “Devido à fé que havia adquirido em Jeová, Raabe protegeu os espiões, arriscando sua própria vida. Por isso, ela não tinha nenhuma obrigação de informar aos homens que procuravam prejudicar o povo de Deus onde os espiões se encontravam.” O artigo conclui: “Raabe foi 'declarada justa pelas obras', incluindo o ato de enganar os emissários do rei.” (Tiago 2:24-26)
 Complementar 1 (Origem: A Sentinela de 1.º de dezembro de 2004, "Destaques do livro de Josué", página 8): o mesmo artigo cita Mateus 7:6 e João 7:3-10 como princípio mais amplo: não existe obrigação de entregar informação sensível a quem só vai usá-la pra fazer mal ao povo de Jeová. A lealdade de Raabe aos espiões, e por trás deles a Jeová, superava qualquer suposta obrigação de dizer a verdade a quem estava do lado errado do julgamento.
 Complementar 2: Repare que a Bíblia não trata a ação de Raabe como um mal necessário que precisou ser perdoado, trata como parte do que a tornou justa aos olhos de Jeová. A coragem dela apareceu justamente no momento em que mentir pros homens do rei era a única forma de proteger quem Jeová estava usando.
-@HIMG A | https://cms-imgp.jw-cdn.org/img/p/1102025914/univ/art/1102025914_univ_cnt_2_xl.jpg | Um campo de linho.
+@HIMG A | https://cms-imgp.jw-cdn.org/img/p/1102025914/univ/art/1102025914_univ_cnt_2_xl.jpg | Um campo de linho. | Um campo de linho
 Comentando a imagem: um campo inteiro de linho em cultivo, mostrando a planta da qual as hastes do terraço de Raabe vinham. Ligada à pergunta 3 de "Analise mais a fundo", a imagem ajuda a visualizar que o esconderijo dos espiões era feito do material mais comum e menos suspeito possível numa casa daquela época. A lição prática é que Jeová frequentemente usa o comum, não o espetacular, pra proteger quem ele está guiando.
 @HIMG B | https://cms-imgp.jw-cdn.org/img/p/1102025914/univ/art/1102025914_univ_cnt_3_xl.jpg | Raabe dando orientações a dois dos homens do rei.
 Comentando a imagem: Raabe fala com dois homens do rei de Jericó, orientando-os (com informação falsa) sobre o paradeiro dos espiões que ela já tinha escondido. Ligada à pergunta 4 de "Analise mais a fundo", a cena mostra o momento exato da coragem de Raabe: encarar os representantes do próprio rei e mentir pra proteger o povo de Jeová, sabendo o risco que corria se fosse descoberta.
