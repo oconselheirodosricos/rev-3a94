@@ -1,4 +1,4 @@
-# Dê valor ao "privilégio de prestar destemidamente serviço sagrado"
+# Dê valor ao ‘privilégio de prestar destemidamente serviço sagrado’
 
 > **Sentinela de Estudo** · Semana de 26 de outubro a 1º de novembro de 2026
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/D%C3%AA-valor-ao-privil%C3%A9gio-de-prestar-destemidamente-servi%C3%A7o-sagrado/)
@@ -28,10 +28,6 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 
 ---
 
-## O PRESENTE DA SALVAÇÃO
-
-O que vemos aqui: Zacarias profetiza sobre um "poderoso salvador" ainda antes de Jesus nascer, e o texto explica de que exatamente esse Salvador nos livra.
-
 **1. O que Zacarias disse em sua profecia?**
 
 ```
@@ -40,6 +36,10 @@ O que o texto nos mostra: Zacarias respondeu à pergunta que parentes e vizinhos
 Como aplicar na nossa vida: Jeová usa momentos familiares comuns pra revelar verdades enormes. Você já percebeu Jeová agindo em algo do seu dia a dia que parecia só rotina?
 Resposta: Além de dizer o que João faria, Zacarias profetizou sobre três coisas que valem pra todos nós: o presente da salvação, o privilégio de servir a Jeová, e a responsabilidade de pregar.
 ```
+
+## O PRESENTE DA SALVAÇÃO
+
+O que vemos aqui: Zacarias profetiza sobre um "poderoso salvador" ainda antes de Jesus nascer, e o texto explica de que exatamente esse Salvador nos livra.
 
 **2. (a) De acordo com Lucas 1:67-73, o que Deus prometeu ao seu povo? (b) Quem é o "poderoso salvador" mencionado em Lucas 1:69?**
 

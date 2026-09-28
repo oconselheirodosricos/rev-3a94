@@ -1,4 +1,4 @@
-# Dê valor ao "privilégio de prestar destemidamente serviço sagrado"
+# Dê valor ao ‘privilégio de prestar destemidamente serviço sagrado’
 
 > **Sentinela de Estudo** · Semana de 26 de outubro a 1º de novembro de 2026
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/D%C3%AA-valor-ao-privil%C3%A9gio-de-prestar-destemidamente-servi%C3%A7o-sagrado/)
@@ -28,10 +28,6 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 
 ---
 
-## O PRESENTE DA SALVAÇÃO
-
-O que vemos aqui: Zacarias profetiza sobre um "poderoso salvador" ainda antes de Jesus nascer, e o texto explica de que exatamente esse Salvador nos livra.
-
 **1. O que Zacarias disse em sua profecia?**
 
 ```
@@ -43,6 +39,10 @@ Complementar 2: Zacarias tinha ficado mudo durante toda a gravidez de Elisabete,
 
 Pra Laurinha: Zacarias falou sobre Jesus assim que pôde falar de novo.
 ```
+
+## O PRESENTE DA SALVAÇÃO
+
+O que vemos aqui: Zacarias profetiza sobre um "poderoso salvador" ainda antes de Jesus nascer, e o texto explica de que exatamente esse Salvador nos livra.
 
 **2. (a) De acordo com Lucas 1:67-73, o que Deus prometeu ao seu povo? (b) Quem é o "poderoso salvador" mencionado em Lucas 1:69?**
 
@@ -203,7 +203,7 @@ Resposta: Em breve, a humanidade vai enfrentar uma "grande tribulação, como nu
 
 Complementar 1: Repare que o valor da pregação de hoje não termina hoje: o texto diz que pessoas vão "se lembrar da mensagem que pregamos" só quando a tribulação já tiver começado. Uma conversa aparentemente sem resultado agora pode germinar anos depois, num momento que ainda não chegou.
 
-Complementar 2: A referência a Mateus 24:14 e Marcos 13:10 (pregar "em todas as nações, como testemunho") liga a pregação de hoje diretamente ao cronograma do fim: o texto não trata a pregação como só uma atividade boa, trata como condição declarada pra chegar ao fim deste sistema.
+Complementar 2: A referência a Mateus 24:14 e Marcos 13:10 (pregar “em testemunho a todas as nações”) liga a pregação de hoje diretamente ao cronograma do fim: o texto não trata a pregação como só uma atividade boa, trata como condição declarada pra chegar ao fim deste sistema.
 
 Pra Laurinha: Pregar agora ajuda pessoas a se lembrarem depois.
 ```

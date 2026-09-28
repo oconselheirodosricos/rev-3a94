@@ -29,10 +29,6 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 
 ---
 
-## AJUDE SEU ESTUDANTE A CONHECER BEM A JEOVÁ
-
-O que vemos aqui: conhecer fatos sobre Jeová não é a mesma coisa que conhecê-lo de verdade, e é esse conhecimento profundo, não um conjunto de dados, que leva um estudante da Bíblia a amar e obedecer a Jeová de coração.
-
 **1. Como você se sente quando vê um estudante da Bíblia fazendo progresso?**
 
 ```
@@ -65,6 +61,10 @@ Complementar 1: Repare que a ordem das três perguntas não é aleatória, é um
 
 Pra Laurinha: Hoje vamos aprender sobre Jeová.
 ```
+
+## AJUDE SEU ESTUDANTE A CONHECER BEM A JEOVÁ
+
+O que vemos aqui: conhecer fatos sobre Jeová não é a mesma coisa que conhecê-lo de verdade, e é esse conhecimento profundo, não um conjunto de dados, que leva um estudante da Bíblia a amar e obedecer a Jeová de coração.
 
 **4. De acordo com Marcos 12:30, qual é o nosso principal objetivo ao dirigir um estudo bíblico?**
 
@@ -189,7 +189,7 @@ Pra Laurinha: Jeová ama cada irmão.
 ```
 Resposta: (a) Se perguntando, com base no que já pesquisou e aprendeu, que decisão agradaria a Jeová, do jeito que Jesus vivia: “aquele que me enviou está comigo. Ele não me deixou só, porque faço sempre o que lhe agrada.” (João 8:29). (b) O parágrafo 16 conta o caso de uma estudante no Chile, pressionada pela família a aceitar um emprego bom, mas que faria ela perder reuniões. A instrutora, Marianne, não disse o que fazer: incentivou a estudante a meditar em como Jeová se sentiria com a decisão, feliz ou triste, e a orar prestando atenção na resposta dele. A estudante recusou o emprego e logo achou outro que não atrapalhava as reuniões.
 
-Complementar 1: O detalhe mais importante do exemplo de Marianne é o que ela NÃO fez: não decidiu pela estudante. O método de Jesus em João 8:29 também não é uma lista externa de regras pra cada situação; é uma pergunta interna, "o que agrada Jeová" (com base em João 8:29, “faço sempre o que lhe agrada”), que a própria pessoa aplica. Instrutor que sempre decide pelo estudante está treinando dependência; instrutor que ensina o método está treinando independência espiritual.
+Complementar 1: O detalhe mais importante do exemplo de Marianne é o que ela NÃO fez: não decidiu pela estudante. O método de Jesus em João 8:29 também não é uma lista externa de regras pra cada situação; é uma pergunta interna sobre o que agrada a Jeová (com base em João 8:29, “faço sempre o que lhe agrada”), que a própria pessoa aplica. Instrutor que sempre decide pelo estudante está treinando dependência; instrutor que ensina o método está treinando independência espiritual.
 Complementar 2: Repare no resultado duplo mencionado no parágrafo: a estudante não só tomou a decisão certa, como isso “acabou fortalecendo a amizade da estudante com Jeová”. Ou seja, o benefício não foi só a decisão em si (evitar perder reuniões); foi o próprio ato de consultar Jeová em oração e agir pela resposta que aprofundou o relacionamento dela com ele, um resultado que nenhuma lista de prós e contras teria produzido sozinha.
 Complementar 3: A frase de Jesus, “ele não me deixou só”, é um lembrete valioso pra quem hesita numa decisão difícil por medo de errar sozinho. A promessa não é que a decisão será fácil ou sem custo (a estudante do Chile abriu mão de um emprego bom), é que Jeová acompanha quem busca fazer o que agrada a ele, mesmo quando o caminho custa alguma coisa no momento.
 

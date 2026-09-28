@@ -1,4 +1,4 @@
-# Não seja enganado por Satanás: Continue confiando em Jeová e Jesus
+# Não seja enganado por Satanás — Continue confiando em Jeová e Jesus
 
 > **Sentinela de Estudo** · Semana de 5 a 11 de outubro de 2026
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/N%C3%A3o-seja-enganado-por-Satan%C3%A1s-Continue-confiando-em-Jeov%C3%A1-e-Jesus/)
@@ -27,9 +27,7 @@
 
 ---
 
-## SATANÁS TENTA DESTRUIR NOSSA UNIÃO
-
-O que aprendemos nesse trecho: a primeira das duas táticas que Satanás usa contra o povo de Jeová hoje: atacar a união entre irmãos.
+O que aprendemos nesse trecho: a tática que o estudo inteiro examina, enfraquecer a nossa confiança em Jeová e Jesus. O artigo mostra como Satanás usou essa tática no passado, como continua usando hoje e o que podemos fazer pra não ser enganados por ele.
 
 **1. Que tática Satanás usa para tentar nos fazer parar de servir a Jeová?**
 
@@ -50,6 +48,8 @@ Resposta: Porque, assim como um soldado que confia no comandante, precisamos con
 
 A nota "a" do artigo diz: "Satanás não causa diretamente todas as dificuldades que enfrentamos. Mas ele está por trás do “espírito do mundo”, que influencia as pessoas a maltratarem o povo de Deus. Então, de forma direta ou indireta, Satanás está por trás de muitos dos desafios que enfrentamos em nossa guerra espiritual.: 1 Cor. 2:12; 1 João 5:19."
 ```
+
+## SATANÁS CONTOU MENTIRAS SOBRE JEOVÁ E JESUS
 
 **3. Como Satanás enfraqueceu a confiança que Eva tinha em Jeová?**
 
@@ -87,7 +87,7 @@ Como aplicar na nossa vida: Quando a mentira não convenceu todo mundo, Satanás
 Resposta: Satanás usou primeiro a mentira, depois o medo da perseguição, mas a maioria dos discípulos continuou firme, reconhecendo quem estava por trás das dificuldades.
 ```
 
-## SATANÁS ESCONDE A VERDADE E TENTA ENFRAQUECER NOSSA CONFIANÇA
+## SATANÁS CONTINUA CONTANDO MENTIRAS SOBRE JEOVÁ E JESUS
 
 O que aprendemos nesse trecho: como a mesma tática continua hoje, através da religião falsa, do sofrimento e das redes sociais.
 
@@ -145,7 +145,7 @@ Como aplicar na nossa vida: O passo que mais se destaca foi pedir ajuda: não fo
 Resposta: Aprendi que orar, pesquisar nas publicações e pedir ajuda de verdade pra pais e irmãos maduros é o caminho pra sair de amizades que afastam de Jeová.
 ```
 
-## COMO PODEMOS RESISTIR ÀS TÁTICAS DE SATANÁS?
+## ESTEJA CONVENCIDO DE QUE JEOVÁ E JESUS AMAM MUITO VOCÊ
 
 O que aprendemos nesse trecho: dois caminhos concretos pra fortalecer a confiança em Jeová e Jesus, e a garantia final de que a luta pode ser vencida.
 
@@ -180,7 +180,7 @@ Resposta: Lembrar de ajudas já recebidas fortalece nossa certeza de que Jeová 
 
 ```
 O que a pergunta quer dizer: A promessa final de segurança.
-O que o texto nos mostra: Jesus garante que, enquanto continuarmos amando a ele e ao Pai, ninguém vai conseguir "nos arrancar da mão do Pai" (João 10:29; Tiago 4:7).
+O que o texto nos mostra: Jesus garante que, enquanto continuarmos amando a ele e ao Pai, ninguém “pode arrancá-las da mão do Pai” (João 10:29; Tiago 4:7).
 Como aplicar na nossa vida: Essa garantia tem uma condição: continuar amando a Jeová e a Jesus. Não é proteção automática, é proteção enquanto a amizade continuar ativa dos dois lados.
 Resposta: Jesus garante que ninguém vai conseguir nos arrancar da mão do Pai enquanto continuarmos amando os dois.
 ```

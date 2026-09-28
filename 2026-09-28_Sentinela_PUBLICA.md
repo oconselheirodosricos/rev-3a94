@@ -29,10 +29,6 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 
 ---
 
-## AJUDE SEU ESTUDANTE A CONHECER BEM A JEOVÁ
-
-O que vemos aqui: conhecer fatos sobre Jeová não é a mesma coisa que conhecê-lo de verdade, e é esse conhecimento profundo, não um conjunto de dados, que leva um estudante da Bíblia a amar e obedecer a Jeová de coração.
-
 **1. Como você se sente quando vê um estudante da Bíblia fazendo progresso?**
 
 ```
@@ -59,6 +55,10 @@ O que o texto nos mostra: Três perguntas: por que os estudantes da Bíblia prec
 Como aplicar na nossa vida: A ordem importa, é uma progressão: primeiro o porquê, depois o quem, só então o como aplicar. Pular direto pra aplicação, sem firmar o porquê e o quem antes, é como construir sem fundação.
 Resposta: Por que os estudantes precisam conhecer bem a Jeová, como ajudá-los a conhecer a personalidade dele, e como ensiná-los a usar o que já aprenderam sobre ele.
 ```
+
+## AJUDE SEU ESTUDANTE A CONHECER BEM A JEOVÁ
+
+O que vemos aqui: conhecer fatos sobre Jeová não é a mesma coisa que conhecê-lo de verdade, e é esse conhecimento profundo, não um conjunto de dados, que leva um estudante da Bíblia a amar e obedecer a Jeová de coração.
 
 **4. De acordo com Marcos 12:30, qual é o nosso principal objetivo ao dirigir um estudo bíblico?**
 

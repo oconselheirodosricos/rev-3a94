@@ -27,10 +27,6 @@
 
 ---
 
-## SATANÁS TENTA DESTRUIR NOSSA UNIÃO
-
-O que aprendemos nesse trecho: a primeira das duas táticas do estudo, com o ciúme de Saul contra Davi como estudo de caso.
-
 **1. Contra quem todos nós temos que lutar?**
 
 ```
@@ -48,6 +44,10 @@ O que o texto nos mostra: Vamos ver que Satanás tenta destruir a união com nos
 Como aplicar na nossa vida: As duas táticas miram direções opostas, uma de dentro da congregação, outra de fora. Qual delas você reconhece mais facilmente na sua vida?
 Resposta: Vamos ver duas táticas de Satanás: destruir nossa união com os irmãos, e usar a oposição pra nos desanimar da pregação.
 ```
+
+## SATANÁS TENTA DESTRUIR NOSSA UNIÃO
+
+O que aprendemos nesse trecho: a primeira das duas táticas do estudo, com o ciúme de Saul contra Davi como estudo de caso.
 
 **3. De que maneira Satanás tenta causar divisão entre nós?**
 
@@ -90,7 +90,7 @@ Resposta: Jonatã reconheceu a vontade de Jeová e apoiou Davi com lealdade, em 
 ```
 O que a pergunta quer dizer: Uma ação prática contra a desunião.
 O que o texto nos mostra: Se tiver um desentendimento com um irmão, resolva logo. Aumente seu amor pelos irmãos, lembrando que somos partes importantes do mesmo corpo (1 Coríntios 12:12), e que nossos irmãos estão do nosso lado lutando contra os mesmos inimigos (1 Pedro 5:8, 9).
-Como aplicar na nossa vida: Efésios 4:26, 27 liga um desentendimento não resolvido a dar "lugar ao Diabo". Existe algum desentendimento que você está adiando resolver?
+Como aplicar na nossa vida: Efésios 4:26, 27 liga um desentendimento não resolvido a dar “chance ao Diabo”. Existe algum desentendimento que você está adiando resolver?
 Resposta: Resolvendo rápido qualquer desentendimento e lembrando que precisamos uns dos outros, como as partes de um corpo.
 ```
 

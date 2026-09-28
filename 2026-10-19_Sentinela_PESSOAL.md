@@ -27,10 +27,6 @@
 
 ---
 
-## O PEDIDO
-
-O que vemos aqui: o pano de fundo de toda a carta, um escravo fugitivo, um senhor ofendido, e um apóstolo que decide intervir não com autoridade, mas com apelo ao amor.
-
 **1. Que responsabilidade todos nós temos?**
 
 ```
@@ -42,6 +38,10 @@ Complementar 2: Vale notar a comparação com o Paraíso: a paz que sentimos hoj
 
 Pra Laurinha: Jeová quer que a gente cuide da paz entre os amigos dele.
 ```
+
+## O PEDIDO
+
+O que vemos aqui: o pano de fundo de toda a carta, um escravo fugitivo, um senhor ofendido, e um apóstolo que decide intervir não com autoridade, mas com apelo ao amor.
 
 **2. O que aconteceu entre Filêmon e Onésimo?**
 
@@ -226,7 +226,7 @@ Comentando a imagem: no primeiro quadro, Filêmon segura a carta de Paulo; no se
 **16. O que Paulo escreveu aos colossenses que ajuda a perdoar, mesmo quando é difícil?**
 
 ```
-Resposta: Mesmo amando os irmãos, nem sempre é fácil perdoá-los. O que ajuda é o que Paulo escreveu aos colossenses, incluindo Filêmon: "continuar a suportar uns aos outros e perdoando liberalmente uns aos outros" (Colossenses 3:13). Paulo estava incentivando paciência e bondade com os irmãos mesmo quando eles irritam ou ofendem.
+Resposta: Mesmo amando os irmãos, nem sempre é fácil perdoá-los. O que ajuda é o que Paulo escreveu aos colossenses, incluindo Filêmon: “Continuem a suportar uns aos outros e a perdoar uns aos outros liberalmente” (Colossenses 3:13). Paulo estava incentivando paciência e bondade com os irmãos mesmo quando eles irritam ou ofendem.
 
 Complementar 1: Repare que o texto reconhece, com honestidade, que "amar" e "achar fácil perdoar" são coisas diferentes. O conselho não pressupõe que o amor sozinho resolve tudo automaticamente, é por isso que Paulo dá uma instrução prática além do sentimento.
 

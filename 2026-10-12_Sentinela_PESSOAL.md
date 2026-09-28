@@ -27,10 +27,6 @@
 
 ---
 
-## SATANÁS TENTA DESTRUIR NOSSA UNIÃO
-
-O que vemos aqui: a primeira das duas táticas do estudo, com o ciúme de Saul contra Davi como estudo de caso do que Satanás quer provocar entre irmãos.
-
 **1. Contra quem todos nós temos que lutar?**
 
 ```
@@ -50,6 +46,10 @@ Complementar 1: O fato de existir uma "série" de táticas (esta é a segunda) j
 Complementar 2: As duas táticas desta semana miram direções opostas: uma olha PRA DENTRO da congregação (união), a outra olha PRA FORA (oposição). Isso mostra que a defesa espiritual precisa cobrir os dois lados ao mesmo tempo, não só o que parece mais óbvio.
 Pra Laurinha: Vamos aprender duas táticas de Satanás.
 ```
+
+## SATANÁS TENTA DESTRUIR NOSSA UNIÃO
+
+O que vemos aqui: a primeira das duas táticas do estudo, com o ciúme de Saul contra Davi como estudo de caso do que Satanás quer provocar entre irmãos.
 
 **3. De que maneira Satanás tenta causar divisão entre nós?**
 
@@ -77,7 +77,7 @@ Pra Laurinha: Saul teve ciúme de Davi.
 Resposta: Satanás sabe que, quando continuamos unidos com nossos irmãos, Jeová nos ajuda e nos abençoa (Salmo 133:1). Então ele tenta destruir nossa união, querendo que tenhamos ciúme, porque sabe que é muito difícil mostrar amor por alguém de quem sentimos ciúme (Marcos 12:30, 31). Se deixássemos de mostrar amor por um irmão, Jeová não aceitaria nossa adoração: e o discípulo Tiago deu um alerta forte sobre os perigos de sentir ciúme.
 
 Complementar 1: A ligação entre ciúme e adoração aceitável é direta e séria: não é "só" um problema de relacionamento, é um problema que compromete a própria adoração. Isso eleva o ciúme de "defeito de personalidade" pra "risco espiritual real".
-Complementar 2: Tiago 3:14-16 liga o ciúme a "toda espécie de coisa vil": não porque todo ciumento vá cometer um crime, mas porque o ciúme abre a porta pra um padrão de pensamento que, sem controle, se degenera.
+Complementar 2: Tiago 3:14-16 liga o ciúme a “todo tipo de coisa ruim”: não porque todo ciumento vá cometer um crime, mas porque o ciúme abre a porta pra um padrão de pensamento que, sem controle, se degenera.
 Pra Laurinha: Ciúme dificulta amar os irmãos.
 ```
 
@@ -96,7 +96,7 @@ Pra Laurinha: Jonatã foi um bom amigo de Davi.
 ```
 Resposta: Outra coisa que Satanás usa pra tentar destruir nossa união são as nossas diferenças: ele quer que pensemos que, por termos opiniões, personalidades e culturas diferentes, não é possível nos dar bem. Se você tiver um desentendimento com algum irmão, resolva logo essa situação. Aumente seu amor pelos irmãos, lembrando que eles são valiosos para Jeová e que precisamos uns dos outros, como todas as partes do corpo são importantes (1 Coríntios 12:12). Nossos irmãos estão do nosso lado, lutando contra os mesmos inimigos (1 Pedro 5:8, 9).
 
-Complementar 1: Efésios 4:26, 27 liga diretamente resolver um desentendimento rápido a NÃO dar "lugar ao Diabo": o texto trata um problema não resolvido entre irmãos como uma porta aberta literalmente pro adversário, não só como um desconforto social.
+Complementar 1: Efésios 4:26, 27 liga diretamente resolver um desentendimento rápido a não dar “chance ao Diabo”: o texto trata um problema não resolvido entre irmãos como uma porta aberta literalmente pro adversário, não só como um desconforto social.
 Complementar 2: A comparação com o corpo (1 Coríntios 12:12) é útil porque nenhuma parte do corpo escolhe as outras partes por semelhança; elas funcionam juntas apesar da diferença de forma e função. Diferença de personalidade não é motivo pra divisão, é o próprio design de como um corpo funciona.
 Pra Laurinha: Resolver logo qualquer briga com um irmão.
 ```
@@ -161,14 +161,14 @@ Pra Laurinha: Devemos ser bondosos até com quem nos persegue.
 Resposta: Porque Jeová nos pede pra fazer isso (Romanos 13:1, 2). Satanás talvez não esteja por trás de toda decisão injusta que os governos tomam, mas ele gostaria que criticássemos os governos ou ficássemos contra eles, exatamente como as pessoas do mundo fazem quando discordam de uma decisão. Um cristão nunca faria isso; se deixássemos de ser neutros e nos envolvêssemos em política, Satanás ficaria muito feliz (João 15:19).
 
 Complementar 1: Repare que a neutralidade política aqui não depende de o governo ser justo ou injusto: o texto assume que os governos VÃO tomar decisões que tornam a vida mais difícil, e ainda assim pede respeito. A neutralidade não é aprovação da injustiça, é recusa de tomar partido político pra corrigi-la.
-Complementar 2: João 15:19 liga a neutralidade à identidade do cristão como alguém que "não é parte do mundo": a recusa de protestar ou tomar lado político não é passividade, é a expressão prática de pertencer a um sistema diferente.
+Complementar 2: João 15:19 liga a neutralidade à identidade do cristão como alguém que não faz parte do mundo (“vocês não fazem parte do mundo”): a recusa de protestar ou tomar lado político não é passividade, é a expressão prática de pertencer a um sistema diferente.
 Pra Laurinha: Respeitamos o governo mesmo quando ele erra.
 ```
 
 **14. Do que devemos nos lembrar sobre as pessoas que hoje se opõem ao povo de Deus?**
 
 ```
-Resposta: Algumas pessoas que antes eram opositoras do povo de Deus, com o tempo, se tornaram zelosas Testemunhas de Jeová (1 Timóteo 1:12, 13). Devemos lembrar disso quando "as pessoas nos insultarem e perseguirem, e, mentindo, disserem todo tipo de coisas más contra nós" (Mateus 5:11). Orar pedindo que as autoridades permitam que continuemos adorando livremente, orar por parentes e colegas que hoje são opositores, e ser pacientes: como disse uma irmã cujo marido se opôs por muitos anos: "O segredo é ter paciência, paciência e mais paciência."
+Resposta: Algumas pessoas que antes eram opositoras do povo de Deus, com o tempo, se tornaram zelosas Testemunhas de Jeová (1 Timóteo 1:12, 13). Devemos lembrar disso quando as pessoas nos insultarem e perseguirem (Mateus 5:11: “as pessoas os insultam e perseguem, e, mentindo, dizem todo tipo de coisas más contra vocês”). Orar pedindo que as autoridades permitam que continuemos adorando livremente, orar por parentes e colegas que hoje são opositores, e ser pacientes: como disse uma irmã cujo marido se opôs por muitos anos: "O segredo é ter paciência, paciência e mais paciência."
 
 Complementar 1: O exemplo de 1 Timóteo 1:12, 13 é o próprio apóstolo Paulo, que antes perseguia os cristãos com violência. Lembrar disso muda a forma de encarar um opositor hoje: não como um inimigo permanente, mas como alguém que ainda pode mudar completamente de lado.
 Complementar 2: A repetição da palavra "paciência" três vezes na citação da irmã não é força de expressão, é o resumo prático de anos reais de espera: um lembrete de que essa paciência raramente é testada por dias, é testada por anos.
@@ -195,7 +195,7 @@ O que aprendemos nesse trecho: as duas táticas se resolvem pela mesma raiz: fé
 Resposta: A Bíblia garante que podemos vencer a luta contra os espíritos malignos (Tiago 4:7; 1 João 5:4, 5), e diz que o segredo pra isso é a fé (Efésios 6:16). Continuar fortalecendo essa fé em Jeová e Jesus motiva a amar os irmãos e continuar unido com eles.
 
 Complementar 1: Repare que as DUAS táticas do estudo (destruir a união, desanimar com oposição) têm a MESMA solução declarada: fé fortalecida em Jeová e Jesus. Isso simplifica a defesa espiritual: não são duas estratégias diferentes de resistência, é uma só fé aplicada em duas frentes.
-Complementar 2: A garantia de Tiago 4:7 ("resistam ao Diabo, e ele fugirá de vocês") usa um verbo de ação nossa (resistir) ligado a uma reação garantida da parte contrária (ele foge). A vitória não depende de sermos mais fortes que Satanás, depende de resistirmos de verdade: o resto é garantido.
+Complementar 2: A garantia de Tiago 4:7 (“oponham-se ao Diabo, e ele fugirá de vocês”) usa um verbo de ação nossa (opor-se) ligado a uma reação garantida da parte contrária (ele foge). A vitória não depende de sermos mais fortes que Satanás, depende de resistirmos de verdade: o resto é garantido.
 Pra Laurinha: Com fé em Jeová, dá pra vencer essa luta.
 ```
 

@@ -1,4 +1,4 @@
-# Não seja enganado por Satanás: Continue confiando em Jeová e Jesus
+# Não seja enganado por Satanás — Continue confiando em Jeová e Jesus
 
 > **Sentinela de Estudo** · Semana de 5 a 11 de outubro de 2026
 > Fonte: [artigo no jw.org](https://www.jw.org/pt/biblioteca/revistas/sentinela-estudo-agosto-2026/N%C3%A3o-seja-enganado-por-Satan%C3%A1s-Continue-confiando-em-Jeov%C3%A1-e-Jesus/)
@@ -27,9 +27,7 @@
 
 ---
 
-## SATANÁS TENTA DESTRUIR NOSSA UNIÃO
-
-O que vemos aqui: a primeira das duas táticas que Satanás usa contra o povo de Jeová hoje: atacar a união entre irmãos, pra que gastemos energia brigando uns com os outros em vez de lutar contra ele.
+O que vemos aqui: a tática que o estudo inteiro examina, enfraquecer a nossa confiança em Jeová e Jesus. O artigo mostra como Satanás usou essa tática no passado, como continua usando hoje e o que podemos fazer pra não ser enganados por ele.
 
 **1. Que tática Satanás usa para tentar nos fazer parar de servir a Jeová?**
 
@@ -50,12 +48,14 @@ Resposta: Porque somos soldados numa guerra espiritual contra "forças espiritua
 
 Complementar 1: A comparação militar é direta de propósito: numa guerra de verdade, dúvida sobre o comandante não é só um sentimento privado, tem consequência prática imediata. O mesmo vale aqui.
 
-Complementar 2: O artigo já avisa que este é só o primeiro de três estudos sobre as táticas de Satanás: esta semana cobre a confiança; um próximo estudo cobre divisão na congregação e oposição externa. É útil ver o quadro completo, não só a peça desta semana.
+Complementar 2: O artigo já avisa que o próximo estudo vai tratar de duas outras táticas: “divisões dentro da congregação e oposição de pessoas de fora”. É útil ver o quadro completo, não só a peça desta semana.
 
 Pra Laurinha: A gente precisa confiar em Jeová como um soldado confia no comandante.
 
 A nota "a" do artigo diz: "Satanás não causa diretamente todas as dificuldades que enfrentamos. Mas ele está por trás do “espírito do mundo”, que influencia as pessoas a maltratarem o povo de Deus. Então, de forma direta ou indireta, Satanás está por trás de muitos dos desafios que enfrentamos em nossa guerra espiritual.: 1 Cor. 2:12; 1 João 5:19."
 ```
+
+## SATANÁS CONTOU MENTIRAS SOBRE JEOVÁ E JESUS
 
 **3. Como Satanás enfraqueceu a confiança que Eva tinha em Jeová?**
 
@@ -105,7 +105,7 @@ Complementar 2: "A maioria continuou firme" é uma admissão honesta do próprio
 Pra Laurinha: Satanás tentou parar os discípulos com mentira e depois com medo.
 ```
 
-## SATANÁS ESCONDE A VERDADE E TENTA ENFRAQUECER NOSSA CONFIANÇA
+## SATANÁS CONTINUA CONTANDO MENTIRAS SOBRE JEOVÁ E JESUS
 
 O que aprendemos nesse trecho: como a mesma tática de plantar dúvida continua hoje, através da religião falsa, do sofrimento e das redes sociais.
 
@@ -116,7 +116,7 @@ Resposta: Satanás é "o pai da mentira" (João 8:44), e ele cega a mente das pe
 
 Complementar 1: Repare o mecanismo específico: não é ensinar "Deus não existe", é ensinar uma versão distorcida que tira o foco do Pai. Uma mentira sofisticada engana mais gente do que uma mentira óbvia.
 
-Complementar 2: O resultado prático dessa mentira é medido em Marcos 12:29, 30: Jesus mesmo disse que o maior mandamento é amar "Jeová, teu Deus": uma doutrina que apaga essa distinção rouba das pessoas o próprio ponto de partida da adoração verdadeira.
+Complementar 2: O resultado prático dessa mentira é medido em Marcos 12:29, 30: Jesus mesmo disse que o maior mandamento é amar “Jeová, seu Deus”: uma doutrina que apaga essa distinção rouba das pessoas o próprio ponto de partida da adoração verdadeira.
 
 Pra Laurinha: A religião falsa esconde quem é o Pai de Jesus.
 ```
@@ -138,7 +138,7 @@ Pra Laurinha: Satanás esconde o nome de Jeová das pessoas.
 ```
 Resposta: Quando enfrentamos desafios, podemos pensar que Jeová não se importa com a gente: exatamente o que Satanás quer, esperando que fiquemos com raiva de Jeová por ele permitir que o sofrimento continue (Provérbios 19:3). Esse pensamento poderia nos afastar de Jeová e nos levar a fazer coisas que agradam Satanás.
 
-Complementar 1: Repare que Provérbios 19:3 descreve exatamente esse mecanismo: "A tolice do homem distorce o seu caminho, e seu coração se enche de ira contra Jeová": a raiva contra Deus muitas vezes nasce da PRÓPRIA decisão ruim da pessoa, não de uma injustiça real de Jeová.
+Complementar 1: Repare que Provérbios 19:3 descreve exatamente esse mecanismo: “É a tolice do homem que distorce o seu caminho, e o seu coração fica furioso com Jeová”: a raiva contra Deus muitas vezes nasce da PRÓPRIA decisão ruim da pessoa, não de uma injustiça real de Jeová.
 
 Complementar 2: A pergunta retórica do artigo, "por que eu deveria continuar obedecendo a Jeová? Isso não me ajuda em nada!", é deliberadamente colocada na primeira pessoa: é pra o leitor reconhecer esse pensamento se ele já apareceu, não só observá-lo de fora.
 
@@ -152,7 +152,7 @@ Resposta: Satanás usa as redes sociais pra isso: muitas pessoas dizem ali que o
 
 Complementar 1: A imagem desta parte mostra uma irmã vendo, no mesmo rolar de tela, um casamento gay, uma boate, uma influenciadora, uma luta e uma política: a enxurrada deliberada de imagens, não uma só, é o próprio mecanismo: satura antes que dê tempo de processar com discernimento.
 
-Complementar 2: Isaías 5:20 é o texto mais direto do artigo aqui: "Ai dos que chamam o mal de bom e o bom de mal". Confundir os rótulos é mais eficaz que negar os padrões abertamente.
+Complementar 2: Isaías 5:20 é o texto mais direto do artigo aqui: “Ai dos que dizem que o bom é mau e que o mau é bom”. Confundir os rótulos é mais eficaz que negar os padrões abertamente.
 
 Pra Laurinha: As redes sociais confundem o que é certo e errado.
 ```
@@ -181,7 +181,7 @@ Complementar 2: O passo que mais se destaca na experiência de Shannon é pedir 
 Pra Laurinha: Shannon pediu ajuda pra voltar a se achegar a Jeová.
 ```
 
-## COMO PODEMOS RESISTIR ÀS TÁTICAS DE SATANÁS?
+## ESTEJA CONVENCIDO DE QUE JEOVÁ E JESUS AMAM MUITO VOCÊ
 
 O que aprendemos nesse trecho: dois caminhos concretos pra fortalecer a confiança em Jeová e Jesus, e a garantia final de que a luta pode ser vencida.
 
@@ -192,7 +192,7 @@ Resposta: Precisamos escolher bem nossas amizades (Tiago 4:4) e tomar cuidado pr
 
 Complementar 1: A imagem desta parte mostra a mesma irmã da primeira imagem agora caminhando na praia com o cachorro, numa reunião social, no testemunho com o carrinho e visitando o hospital com anciãos: o contraste com a enxurrada de redes sociais da imagem anterior é proposital: hábitos concretos substituem exposição descontrolada.
 
-Complementar 2: Atos 17:11 elogia os bereanos por examinarem "cuidadosamente as Escrituras todos os dias" pra ver se o que ouviam era verdade: o antídoto contra desinformação nunca foi ingenuidade, foi verificação ativa contra a fonte confiável.
+Complementar 2: Atos 17:11 elogia os bereanos porque “examinavam cuidadosamente as Escrituras, todo dia” pra ver se o que ouviam era verdade: o antídoto contra desinformação nunca foi ingenuidade, foi verificação ativa contra a fonte confiável.
 
 Pra Laurinha: Estudar a Bíblia protege contra as mentiras de Satanás.
 ```
@@ -214,9 +214,9 @@ Pra Laurinha: Jeová ama a gente mais do que uma mãe ama um filho.
 ```
 Resposta: Porque meditar nas ajudas que já recebemos: orações respondidas, momentos em que Jeová deu a força necessária: fortalece a certeza de que, não importam os desafios futuros, Jeová e Jesus vão estar do nosso lado (Provérbios 22:17). Também vale perguntar a outros irmãos como eles já sentiram essa ajuda.
 
-Complementar 1: Salmo 118:6 completa o raciocínio: "Jeová está do meu lado; não terei medo. O que o homem pode me fazer?": a confiança ali não vem de nunca ter tido problema, vem de já ter visto Jeová agir antes.
+Complementar 1: Salmo 118:6 completa o raciocínio: “Jeová está do meu lado; não terei medo. O que me pode fazer o homem?”: a confiança ali não vem de nunca ter tido problema, vem de já ter visto Jeová agir antes.
 
-Complementar 2: Perguntar a outros irmãos sobre a ajuda deles (Provérbios 22:17, "incline o ouvido... aplique o coração ao que eu sei") multiplica a evidência disponível: você não depende só da própria memória, tem acesso à experiência de toda a congregação.
+Complementar 2: Perguntar a outros irmãos sobre a ajuda deles (Provérbios 22:17, “preste atenção e escute as palavras dos sábios”) multiplica a evidência disponível: você não depende só da própria memória, tem acesso à experiência de toda a congregação.
 
 Pra Laurinha: Lembrar da ajuda de Jeová no passado dá confiança pro futuro.
 ```
@@ -224,9 +224,9 @@ Pra Laurinha: Lembrar da ajuda de Jeová no passado dá confiança pro futuro.
 **17. De acordo com João 10:29, que garantia Jesus dá a todos aqueles que continuam amando a ele e a seu Pai?**
 
 ```
-Resposta: Jesus garante que, enquanto continuarmos amando a ele e ao Pai, ninguém vai conseguir "nos arrancar da mão do Pai" (João 10:29). É essa mesma confiança que nos ajuda a resistir às táticas de Satanás e continuar fiéis até que ele e seus demônios sejam destruídos para sempre (Tiago 4:7; Apocalipse 20:1-3, 10).
+Resposta: Jesus garante que, enquanto continuarmos amando a ele e ao Pai, ninguém “pode arrancá-las da mão do Pai” (João 10:29). É essa mesma confiança que nos ajuda a resistir às táticas de Satanás e continuar fiéis até que ele e seus demônios sejam destruídos para sempre (Tiago 4:7; Apocalipse 20:1-3, 10).
 
-Complementar 1: "Arrancar da mão do Pai" é imagem de segurança ativa, não passiva: não é "ninguém vai encontrar você escondido", é "ninguém vai conseguir te tirar de onde você está sendo segurado".
+Complementar 1: “Ninguém pode arrancá-las da mão do Pai” (João 10:29) é imagem de segurança ativa, não passiva: não é "ninguém vai encontrar você escondido", é "ninguém vai conseguir te tirar de onde você está sendo segurado".
 
 Complementar 2: Repare que a garantia tem uma condição embutida: "continuam amando a ele e a seu Pai". Não é proteção automática independente da nossa escolha; é proteção garantida enquanto a amizade continuar ativa dos dois lados.
 

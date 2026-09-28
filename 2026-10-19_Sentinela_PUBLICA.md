@@ -27,10 +27,6 @@
 
 ---
 
-## O PEDIDO
-
-O que aprendemos nesse trecho: o pano de fundo de toda a carta, um escravo fugitivo, um senhor ofendido, e um apóstolo que decide intervir com apelo ao amor, não com ordem.
-
 **1. Que responsabilidade todos nós temos?**
 
 ```
@@ -39,6 +35,10 @@ O que o texto nos mostra: Nós damos muito valor à paz que existe entre o povo 
 Como aplicar na nossa vida: A paz não é só um dom recebido, é algo que cada um protege ativamente. O que você tem feito, concretamente, pra proteger a paz na sua congregação?
 Resposta: Cada um de nós tem a responsabilidade de manter e proteger a paz que existe na congregação, mesmo sendo Jeová quem a dá (Romanos 12:18).
 ```
+
+## O PEDIDO
+
+O que aprendemos nesse trecho: o pano de fundo de toda a carta, um escravo fugitivo, um senhor ofendido, e um apóstolo que decide intervir com apelo ao amor, não com ordem.
 
 **2. O que aconteceu entre Filêmon e Onésimo?**
 
@@ -185,7 +185,7 @@ Comentando a imagem: no primeiro quadro, Filêmon segura a carta de Paulo; no se
 
 ```
 O que a pergunta quer dizer: O conselho concreto que ajuda quando amar não basta pra perdoar fácil.
-O que o texto nos mostra: Paulo incentivou a "continuar a suportar uns aos outros e perdoando liberalmente" (Colossenses 3:13).
+O que o texto nos mostra: Paulo escreveu: “Continuem a suportar uns aos outros e a perdoar uns aos outros liberalmente” (Colossenses 3:13).
 Como aplicar na nossa vida: "Continuar a suportar" é ação contínua, não evento único. Como você tem praticado isso com um irmão específico?
 Resposta: Paulo incentiva a continuar suportando e perdoando liberalmente uns aos outros (Colossenses 3:13).
 ```
