@@ -28,6 +28,7 @@
 ---
 
 **1. Que responsabilidade todos nós temos?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Nós damos muito valor à paz que existe entre o povo de Jeová, e essa paz nos dá uma ideia de como vai ser a vida no Paraíso (Isaías 32:17, 18). É verdade que é Jeová que nos dá essa paz, mas cada um de nós tem a responsabilidade de manter e proteger o ambiente pacífico que existe na congregação (Romanos 12:18). Podemos encontrar respostas sobre como fazer isso analisando um pedido feito com base no amor, num relato envolvendo três personagens bíblicos: o apóstolo Paulo, Onésimo e Filêmon.
@@ -44,6 +45,7 @@ Pra Laurinha: Cuidar da paz na congregação.
 O que vemos aqui: o pano de fundo de toda a carta, um escravo fugitivo, um senhor ofendido, e um apóstolo que decide intervir não com autoridade, mas com apelo ao amor.
 
 **2. O que aconteceu entre Filêmon e Onésimo? (Filêmon 8, 9, 17)**
+@CAMPO Sua resposta
 ```
 Resposta: Filêmon era um irmão na congregação de Colossos, conhecido por ter forte fé e ser muito amoroso. Ele tinha um escravo não cristão chamado Onésimo, que fugiu pra Roma, provavelmente depois de roubar dele (Filêmon 18). Em Roma, Onésimo se tornou cristão e ficou amigo de Paulo (Colossenses 4:9). Mas pela lei romana, precisava voltar pro seu senhor, então Paulo o enviou de volta com uma carta (Filêmon 12, 13). Na carta, lida em Filêmon 8, 9, 17, Paulo incentivou Filêmon a receber Onésimo de volta com base no amor de Filêmon por Cristo e pelos irmãos, não em ordem de autoridade.
 
@@ -55,6 +57,7 @@ Pra Laurinha: Onésimo fugiu da casa de Filêmon.
 ```
 
 **3. O que pode ter deixado Paulo preocupado ao enviar Onésimo de volta? (Veja também a imagem.)**
+@CAMPO Sua resposta
 ```
 Resposta: Paulo sabia que a volta de Onésimo podia acabar tirando a paz da congregação, Filêmon tinha o direito legal de punir Onésimo severamente, e outros escravos e donos de escravos podiam ter opiniões diferentes sobre o assunto. Por isso Paulo escreveu uma carta a Filêmon, enviada por meio de Tíquico, e também uma carta à congregação de Colossos (Efésios 6:21, 22; Colossenses 4:7-9). Analisando essas cartas, vamos ver o que aprender com os exemplos de Paulo, Onésimo e Filêmon.
 
@@ -73,6 +76,7 @@ Comentando a imagem: Filêmon lê em voz alta a carta de Paulo, na frente de alg
 O que aprendemos nesse trecho: quatro atitudes concretas de Paulo que ajudam a cultivar a paz com os irmãos, tratar como amigo, elogiar, falar bem, e manter a bondade sob pressão.
 
 **4-5. O que os anciãos podem fazer para contribuir com a paz na congregação?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Podem seguir o exemplo de Paulo, que tratava os irmãos como amigos, não como se fosse dono deles (Filêmon 17; 2 Coríntios 1:24): pra Paulo, Filêmon era colaborador e amigo, e isso deu um bom exemplo de como tratar Onésimo, agora cristão. Anciãos que tratam os irmãos como amigos criam um ambiente de paz na congregação, porque, sendo pastores amorosos, não agem como donos do rebanho de Deus (1 Pedro 5:1-3); em vez disso, passam tempo com os irmãos, dão valor a eles, escutam e apoiam em tempos de necessidade.
@@ -85,6 +89,7 @@ Pra Laurinha: Tratar os irmãos como amigos.
 ```
 
 **6. Por que é importante dar elogios?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Paulo elogiou Filêmon (Filêmon 4, 5, 7). Todo mundo precisa de elogios porque muitos duvidam do próprio valor, alguns ficam inseguros com a aparência ou a opinião alheia, outros temem perder um privilégio que apreciam. Por causa desses sentimentos normais, podemos ficar ansiosos ou nos ofender facilmente, achando que estão sempre nos acusando, ou tentando provar que somos melhores que outros, atitudes que impedem relacionamentos pacíficos. Elogios ajudam a pessoa a reconhecer seu próprio valor (Provérbios 12:25) e a se sentir amada e valorizada. A orientação prática: procure oportunidades pra dar elogios sinceros, não só quando alguém faz algo bem feito, mas também quando se esforça.
@@ -97,6 +102,7 @@ Pra Laurinha: Elogio faz a pessoa feliz.
 ```
 
 **7. Por que precisamos ter cuidado com o que falamos sobre outros? (Filêmon 10-12)**
+@CAMPO Sua resposta
 ```
 Resposta: Paulo falou bem de Onésimo (Filêmon 10-12), o que certamente afetou os sentimentos e a atitude de Filêmon em relação a ele. Da mesma forma, o que falamos sobre uma pessoa influencia como ela é vista e tratada: falar bem dos irmãos ajuda outros a tratá-los com bondade, e o contrário também é verdade, falar mal pode afetar negativamente como outros vão tratá-los. Mas falar de forma positiva sobre alguém exige primeiro pensar de forma positiva sobre essa pessoa.
 
@@ -108,6 +114,7 @@ Pra Laurinha: Nossas palavras mudam como tratam alguém.
 ```
 
 **8. O que pode nos ajudar a falar bem dos irmãos? (Veja também as imagens.)**
+@CAMPO Sua resposta
 ```
 Resposta: Paulo tinha o hábito de agradecer a Jeová pelas boas qualidades de Filêmon (Filêmon 4, 5), e fazia o mesmo com outros irmãos (1 Coríntios 1:4-7; Filipenses 1:3-5; Colossenses 1:3, 4; 1 Tessalonicenses 1:2, 3). Ele sabia das fraquezas dos irmãos, mas preferia se concentrar nas qualidades deles, sempre agradecendo a Jeová pelos amigos que tinha. Quem tem dificuldade de falar bem das pessoas pode se esforçar pra ter o hábito de ver as qualidades delas e orar pedindo que Jeová as abençoe, isso facilita falar coisas boas sobre elas depois.
 
@@ -122,6 +129,7 @@ Pra Laurinha: Ver as coisas boas dos irmãos.
 Comentando a imagem: no primeiro quadro, Paulo, acorrentado, escreve uma carta; no segundo, um irmão mais velho elogia um jovem publicamente no Salão do Reino. Ligada ao parágrafo 8, a sequência liga o hábito interno de Paulo (agradecer a Jeová pelas qualidades dos irmãos, mesmo estando preso) à expressão externa desse hábito hoje (o elogio público). A lição prática é que o mesmo princípio atravessa séculos e circunstâncias: da prisão de Paulo ao Salão do Reino de hoje, pensar bem dos irmãos sempre termina em tratá-los bem.
 
 **9. Por que é impressionante o modo como Paulo falou com Filêmon?**
+@CAMPO Sua resposta
 ```
 Resposta: Paulo estava numa situação difícil, preso injustamente em Jerusalém e Cesareia, transferido pra Roma sofrendo naufrágio no caminho, e em prisão domiciliar em Roma quando escreveu a carta (Filêmon 1), mas mesmo assim tratou Filêmon com bondade e respeito, sem deixar o estresse afetar o tom da carta. A lição: mesmo cansados, estressados ou enfrentando dificuldades, podemos contribuir pra um ambiente de paz nos esforçando pra tratar outros com bondade; e quando estamos em paz com outros, fica mais fácil lidar com nossos próprios problemas.
 
@@ -137,6 +145,7 @@ Pra Laurinha: Paulo estava preso e foi gentil.
 O que aprendemos nesse trecho: como agir quando somos nós que ofendemos alguém, o exemplo de quem deu o primeiro passo mesmo sabendo que isso custaria caro.
 
 **10. O que podemos aprender com o exemplo de Onésimo?**
+@CAMPO Sua resposta
 ```
 Resposta: Todos nós fazemos e dizemos coisas que ofendem outros, e o exemplo de Onésimo ensina como agir quando isso acontece: ele admitiu o erro e se esforçou pra fazer as pazes, algo que parece simples mas não é nada fácil. Sabendo que a lei romana exigia sua volta, ele aceitou uma viagem cara e cansativa de mais de 1.400 quilômetros, dispôs-se a abrir mão da liberdade e a encarar as consequências das próprias ações. Mesmo que achasse ter bons motivos pra ter fugido, ele não deixou esses sentimentos o impedirem de fazer o que estava ao seu alcance pra recuperar a paz com Filêmon, agora também seu irmão.
 
@@ -148,6 +157,7 @@ Pra Laurinha: Ele admitiu o erro dele.
 ```
 
 **11. O que podemos fazer para recuperar a paz quando ofendemos alguém? (Veja também as imagens.)**
+@CAMPO Sua resposta
 ```
 Resposta: Se você ofender alguém, dê o primeiro passo pra recuperar a paz (Mateus 5:23-25). Isso pode ser difícil, mas vale a pena: peça desculpas de coração, esteja disposto a ouvir a outra pessoa e tente entender como ela se sente, admita o erro sem se justificar nem colocar a culpa em outros, se fizer isso, o pedido de desculpas pode parecer insincero, e o problema pode continuar ou piorar. Pedir desculpas exige humildade, mas geralmente é o caminho mais rápido pra recuperar a paz (Romanos 14:19).
 
@@ -166,6 +176,7 @@ Comentando a imagem: no primeiro quadro, um retrato de Onésimo; no segundo, doi
 O que aprendemos nesse trecho: as qualidades que ajudam a perdoar quando somos nós os ofendidos.
 
 **12. Por que Paulo acreditava que Filêmon iria perdoar Onésimo?**
+@CAMPO Sua resposta
 ```
 Resposta: O exemplo de Filêmon ensina como manter a paz quando alguém nos ofende. A Bíblia não diz explicitamente se Filêmon perdoou Onésimo e o recebeu de volta com bondade, mas Paulo acreditava que ele faria isso (Filêmon 17, 21), porque sabia que Filêmon tinha qualidades que o ajudariam a perdoar.
 
@@ -177,6 +188,7 @@ Pra Laurinha: Filêmon era amoroso e bondoso.
 ```
 
 **13. Por que o amor é essencial para manter a paz? (Colossenses 3:14)**
+@CAMPO Sua resposta
 ```
 Resposta: Filêmon amava os irmãos (Filêmon 5), o nome dele significa "amoroso", e ele fazia jus a esse nome, o que o ajudou a perdoar Onésimo. Na carta à congregação de Colossos, Paulo chamou o amor de "o perfeito vínculo de união" (Colossenses 3:14): a qualidade que mais contribui pra paz e união é o amor, e quanto maior nosso amor por um irmão, mais fácil é perdoá-lo e tratá-lo com bondade (1 Coríntios 13:4-7).
 
@@ -188,6 +200,7 @@ Pra Laurinha: Quem ama perdoa mais fácil.
 ```
 
 **14. Como sabemos que Filêmon era hospitaleiro?**
+@CAMPO Sua resposta
 ```
 Resposta: Filêmon tinha a hospitalidade, uma qualidade que fortalece o amor: ele cedeu sua casa como local de reuniões da congregação (Filêmon 2), e Paulo via nele alguém hospitaleiro o bastante pra pedir que preparasse um lugar pra ele ficar (Filêmon 22).
 
@@ -199,6 +212,7 @@ Pra Laurinha: A reunião era na casa dele.
 ```
 
 **15. Por que mostrar hospitalidade fortalece nosso amor por outros? (Veja também as imagens.)**
+@CAMPO Sua resposta
 ```
 Resposta: Quando imitamos Filêmon e mostramos hospitalidade, nosso amor por outros fica mais forte: ser hospitaleiro dá a oportunidade de conhecer melhor os irmãos, inclusive os que a princípio parecem ter pouco em comum com a gente, o que nos ajuda a dar valor à diversidade de personalidades na organização de Jeová e a entender por que Jeová os atraiu (João 6:44). Sendo hospitaleiros, nosso amor pelos irmãos aumenta, deixamos de atribuir más motivações a eles, e fica mais fácil perdoá-los quando erram.
 
@@ -213,6 +227,7 @@ Pra Laurinha: Conhecer os irmãos faz amar mais.
 Comentando a imagem: no primeiro quadro, Filêmon segura a carta de Paulo; no segundo, os mesmos irmãos aparecem numa recreação animada com outras pessoas. Ligada ao parágrafo 15, a sequência mostra a hospitalidade saindo do texto pra prática concreta, de "receber uma carta sobre amor" a efetivamente conviver com irmãos variados. A lição prática é que hospitalidade não é conceito abstrato, é tempo de qualidade gasto com gente que talvez não esteja no seu círculo mais próximo.
 
 **16. Qual talvez tenha sido a reação de Filêmon quando ouviu o conselho de Paulo em Colossenses 3:13?**
+@CAMPO Sua resposta
 ```
 Resposta: Mesmo amando os irmãos, nem sempre é fácil perdoá-los. O que ajuda é o que Paulo escreveu aos colossenses, incluindo Filêmon: “Continuem a suportar uns aos outros e a perdoar uns aos outros liberalmente” (Colossenses 3:13). Imagine Filêmon ouvindo a leitura dessa carta na congregação que se reunia na casa dele: se ainda estivesse remoendo o que Onésimo tinha feito, ele sabia o que precisava fazer, continuar suportando Onésimo e perdoando liberalmente.
 
@@ -224,6 +239,7 @@ Pra Laurinha: Ele talvez lembrou de Onésimo.
 ```
 
 **17. O que significa ‘continuar a suportar uns aos outros’?**
+@CAMPO Sua resposta
 ```
 Resposta: Significa ser pacientes e bondosos com os irmãos mesmo quando eles nos irritam ou ofendem. Paulo destacou o exemplo de amor e perdão de Jeová: ele é razoável, não espera que seus servos sejam perfeitos, sabe das nossas limitações mas se concentra nas nossas qualidades (Salmo 103:13, 14; 130:3), e por isso continua nos tratando com bondade imerecida e misericórdia (Lamentações 3:22, 23). Se nos esforçarmos pra ver os irmãos como Jeová os vê, vai ser mais fácil suportar com paciência os erros deles, assim como eles suportam os nossos, como uma planta sem flor que nos motiva a cuidar dela porque lembramos como ela é bonita florida: lembrar das qualidades de um irmão que nos decepcionou nos motiva a perdoá-lo e tratá-lo com bondade.
 
@@ -235,6 +251,7 @@ Pra Laurinha: Ter paciência com os irmãos.
 ```
 
 **18. O que você está decidido a fazer?**
+@CAMPO Sua resposta
 ```
 Resposta: Jeová dá muito valor a tudo o que fazemos pra ajudar nossa congregação a ter paz. Por isso, devemos procurar oportunidades todos os dias: continuar sendo bondosos no que falamos e como falamos, pedir desculpas, se esforçar pra reparar o dano quando ofendermos alguém, e desenvolver um forte amor pelos irmãos, o tipo de amor que ajuda a perdoar de coração. Assim, contribuímos pra um ambiente de paz na congregação e estamos entre os mansos que "possuirão a terra E terão grande alegria na abundância de paz" (Salmo 37:11).
 
@@ -248,18 +265,21 @@ Pra Laurinha: Ajudar a ter paz todo dia.
 @RECAP O QUE VOCÊ APRENDEU COM . . .
 
 **o apóstolo Paulo?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Aprendi a tratar os irmãos como amigos, não como se eu fosse dono deles (Filêmon 17; 2 Coríntios 1:24); a elogiá-los sinceramente, porque todo mundo precisa reconhecer o próprio valor (Provérbios 12:25); a falar bem deles, porque isso influencia como outros os tratam (Filêmon 10-12); e a manter a bondade mesmo quando eu estiver estressado ou passando por dificuldade (Filêmon 1, 9).
 ```
 
 **Onésimo?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Aprendi a dar o primeiro passo pra recuperar a paz quando eu ofender alguém, mesmo que isso custe caro, sem deixar que a sensação de "ter um motivo" me impeça de agir (Mateus 5:23-25).
 ```
 
 **Filêmon?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Aprendi que amor e hospitalidade são as qualidades que tornam o perdão possível, e que imitar o exemplo paciente e razoável de Jeová me ajuda a suportar e perdoar os irmãos liberalmente, do jeito que ele faz comigo (Colossenses 3:13, 14; Salmo 103:13, 14).

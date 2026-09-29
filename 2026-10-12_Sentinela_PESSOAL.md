@@ -28,6 +28,7 @@
 ---
 
 **1. Contra quem todos nós temos que lutar? (Efésios 6:11, 12)**
+@CAMPO Sua resposta
 ```
 Resposta: Como servos de Jeová, nós não participamos das guerras que acontecem no mundo (Isaías 2:4; João 18:36). Mas a Bíblia fala que todos nós estamos num outro tipo de guerra: uma luta contra espíritos malignos (Efésios 6:11, 12). O mais importante pra vencer essa luta é sempre confiarmos na ajuda de Jeová, mas também precisamos saber quais táticas Satanás e os demônios usam contra nós e nossa família espiritual.
 
@@ -37,6 +38,7 @@ Pra Laurinha: Contra Satanás e os demônios.
 ```
 
 **2. O que vamos ver neste estudo?**
+@CAMPO Sua resposta
 
 ```
 Resposta: No estudo anterior, vimos como o Diabo tenta enfraquecer nossa confiança em Jeová e Jesus. Neste estudo, vamos ver outras duas táticas: primeiro, que ele tenta destruir a união que temos com nossos irmãos e irmãs; depois, que ele usa a oposição pra tentar nos distrair ou nos assustar, esperando que isso nos faça parar de realizar o trabalho que Jeová nos deu pra fazer.
@@ -51,6 +53,7 @@ Pra Laurinha: Vamos aprender duas táticas de Satanás.
 O que vemos aqui: a primeira das duas táticas do estudo, com o ciúme de Saul contra Davi como estudo de caso do que Satanás quer provocar entre irmãos.
 
 **3. De que maneira Satanás tenta causar divisão entre nós?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Satanás tenta causar problemas entre nós e nossos irmãos, com o objetivo de que lutemos uns contra os outros em vez de lutar contra ele. Muitas pessoas no mundo de Satanás são cruéis, não têm amor, e normalmente não confiam umas nas outras; Satanás quer que sejamos influenciados por elas e comecemos a criticar nossos irmãos, desconfiar deles e até sentir ódio (Romanos 16:17).
@@ -61,6 +64,7 @@ Pra Laurinha: Ele quer que a gente brigue.
 ```
 
 **4. Por que Saul passou a odiar Davi? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 Resposta: No começo, Saul amava Davi e ficou impressionado ao ver que ele era um guerreiro habilidoso (1 Samuel 18:5). Mas, com o tempo, Saul ficou com muito ciúme, porque as pessoas gostavam mais de Davi do que dele, e por isso tentou matá-lo várias vezes (1 Samuel 18:9-11). Satanás queria muito que isso acontecesse, porque, sob orientação de Jeová, Davi já tinha sido ungido para ser o próximo rei de Israel (1 Samuel 16:13): Satanás ficaria feliz se o que Jeová tinha falado não se cumprisse.
@@ -71,6 +75,7 @@ Pra Laurinha: Saul teve ciúme de Davi.
 ```
 
 **5. Por que o Diabo quer que tenhamos ciúme dos nossos irmãos? (Tiago 3:14-16)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Satanás sabe que, quando continuamos unidos com nossos irmãos, Jeová nos ajuda e nos abençoa (Salmo 133:1). Então ele tenta destruir nossa união, querendo que tenhamos ciúme, porque sabe que é muito difícil mostrar amor por alguém de quem sentimos ciúme (Marcos 12:30, 31). Se deixássemos de mostrar amor por um irmão, Jeová não aceitaria nossa adoração: e o discípulo Tiago deu um alerta forte sobre os perigos de sentir ciúme.
@@ -81,6 +86,7 @@ Pra Laurinha: Ciúme dificulta amar os irmãos.
 ```
 
 **6. O que você aprendeu do exemplo de Jonatã? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Se amarmos de verdade nossos irmãos, não vamos ter ciúme deles: vamos ser amigos leais uns dos outros. Jonatã, filho de Saul, ao contrário do pai, não tinha ciúme de Davi; pelo contrário, se tornou amigo dele e disse que tinha certeza de que o propósito de Jeová se cumpriria: “Você será o rei de Israel.” Ele foi humilde, percebeu qual era a vontade de Jeová, e apoiou Davi como o próximo rei (1 Samuel 23:16, 17).
@@ -91,6 +97,7 @@ Pra Laurinha: Jonatã não teve ciúme de Davi.
 ```
 
 **7. O que podemos fazer para não deixar Satanás destruir nossa união? (Efésios 4:25-27)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Outra coisa que Satanás usa pra tentar destruir nossa união são as nossas diferenças: ele quer que pensemos que, por termos opiniões, personalidades e culturas diferentes, não é possível nos dar bem. Se você tiver um desentendimento com algum irmão, resolva logo essa situação. Aumente seu amor pelos irmãos, lembrando que eles são valiosos para Jeová e que precisamos uns dos outros, como todas as partes do corpo são importantes (1 Coríntios 12:12). Nossos irmãos estão do nosso lado, lutando contra os mesmos inimigos (1 Pedro 5:8, 9).
@@ -101,6 +108,7 @@ Pra Laurinha: Fazer as pazes bem rápido.
 ```
 
 **8. O que podemos fazer quando um irmão ou uma irmã nos magoa?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Lembrar que, assim como nós, eles também são imperfeitos, e que é normal surgirem irritações quando pessoas imperfeitas passam tempo juntas (Eclesiastes 7:20). Quando isso acontecer, seguir o conselho da Bíblia de suportar e perdoar uns aos outros liberalmente (Colossenses 3:12-14). Fazer isso é cooperar com Jeová e Jesus, que desejam que nossa família espiritual continue unida (João 17:20, 21).
@@ -115,6 +123,7 @@ Pra Laurinha: Perdoar os irmãos quando eles erram.
 O que aprendemos nesse trecho: a segunda tática, vinda de fora da congregação: perseguição e injustiça : com Isaque e Jesus como exemplos de como reagir sem se desviar do que importa.
 
 **9. Qual é outra tática que Satanás usa contra nós?**
+@CAMPO Sua resposta
 
 ```
 Resposta: A perseguição. O apóstolo Paulo alertou que todos os cristãos verdadeiros seriam perseguidos (2 Timóteo 3:12). Como a perseguição é injusta, poderíamos começar a gastar tempo e energia tentando corrigir a situação, conseguir justiça ou nos vingar: o que nos faria deixar de lado o trabalho mais importante que Jeová nos deu: pregar as boas novas (Romanos 12:19-21).
@@ -125,6 +134,7 @@ Pra Laurinha: Ele usa quem é contra nós.
 ```
 
 **10. O que Isaque fez ao enfrentar injustiças?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Isaque ficou rico e passou a ter muitos animais, mas os filisteus vizinhos, com inveja, taparam os poços que os servos do seu pai Abraão tinham cavado (Gênesis 26:12-18). Precisando de água, Isaque decidiu se mudar e cavar outros poços, mas os filisteus disseram que a água também era deles. Em vez de brigar, Isaque se mudou de novo pra manter a paz, e Jeová o abençoou (Gênesis 26:19-25).
@@ -135,6 +145,7 @@ Pra Laurinha: Isaque preferiu a paz à briga.
 ```
 
 **11. Como Jesus reagiu ao enfrentar desafios?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Jesus enfrentou muitos desafios: parentes que achavam que ele tinha perdido o juízo (Marcos 3:21), líderes religiosos que questionavam sua autoridade (Lucas 11:15, 16), a traição de um amigo achegado (Mateus 26:14-16), e os principais sacerdotes se juntando às autoridades pra condená-lo à morte (Marcos 15:1, 13-15). Mas Jesus decidiu se concentrar no serviço que Jeová tinha dado a ele, e nunca tentou se vingar: quando foi preso e o apóstolo Pedro decepou a orelha de um escravo pra defendê-lo, Jesus não concordou com a violência e curou a orelha do homem (Lucas 22:50, 51).
@@ -145,6 +156,7 @@ Pra Laurinha: Jesus não se vingou.
 ```
 
 **12. De acordo com Mateus 5:43, 44, como devemos tratar as pessoas que se opõem a nós ou nos perseguem?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Jesus disse que devemos amar até mesmo as pessoas que nos perseguem, o que quer dizer que não devemos odiar nem tratar mal essas pessoas. Em vez disso, seguindo a orientação de Jesus, fazemos nosso melhor pra tratar todas as pessoas com bondade, paciência e respeito, mesmo quando elas se opõem a nós ou à nossa obra de pregação (1 Coríntios 13:4).
@@ -155,6 +167,7 @@ Pra Laurinha: Com amor, até os inimigos.
 ```
 
 **13. Por que devemos respeitar os governos mesmo quando eles se opõem a nós? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Porque Jeová nos pede pra fazer isso (Romanos 13:1, 2). Satanás talvez não esteja por trás de toda decisão injusta que os governos tomam, mas ele gostaria que criticássemos os governos ou ficássemos contra eles, exatamente como as pessoas do mundo fazem quando discordam de uma decisão. Um cristão nunca faria isso; se deixássemos de ser neutros e nos envolvêssemos em política, Satanás ficaria muito feliz (João 15:19).
@@ -165,6 +178,7 @@ Pra Laurinha: Jeová pede que a gente respeite.
 ```
 
 **14. Do que devemos nos lembrar sobre as pessoas que hoje se opõem ao povo de Deus?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Algumas pessoas que antes eram opositoras do povo de Deus, com o tempo, se tornaram zelosas Testemunhas de Jeová (1 Timóteo 1:12, 13). Devemos lembrar disso quando as pessoas nos insultarem e perseguirem (Mateus 5:11: “as pessoas os insultam e perseguem, e, mentindo, dizem todo tipo de coisas más contra vocês”). Orar pedindo que as autoridades permitam que continuemos adorando livremente, orar por parentes e colegas que hoje são opositores, e ser pacientes: como disse uma irmã que por muitos anos foi contra o seu marido ser Testemunha de Jeová: "O segredo é ter paciência, paciência e mais paciência."
@@ -175,6 +189,7 @@ Pra Laurinha: Eles podem mudar um dia.
 ```
 
 **15. Por que não seria realista tentar acabar com as injustiças que existem hoje?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Porque tentar resolver as injustiças de hoje só vai nos deixar sem tempo e energia (Eclesiastes 1:15). Jeová sabe exatamente o que estamos enfrentando (Salmo 37:18), e muito em breve o Reino dele vai desfazer todo o sofrimento que Satanás e aqueles que o apoiam têm causado (1 João 3:8; Apocalipse 21:5). Enquanto isso, precisamos continuar sendo pacientes e usar nosso tempo e energia pra ajudar o maior número possível de pessoas a se tornarem amigas de Jeová.
@@ -189,6 +204,7 @@ Pra Laurinha: Só Jeová vai consertar tudo.
 O que aprendemos nesse trecho: as duas táticas se resolvem pela mesma raiz: fé fortalecida em Jeová e Jesus.
 
 **16. O que vai nos ajudar a vencer a nossa luta contra espíritos malignos? (Veja também as imagens.)**
+@CAMPO Sua resposta
 
 ```
 Resposta: A Bíblia garante que podemos vencer a luta contra os espíritos malignos (Tiago 4:7; 1 João 5:4, 5), e diz que o segredo pra isso é a fé (Efésios 6:16). Continuar fortalecendo essa fé em Jeová e Jesus motiva a amar os irmãos e continuar unido com eles.
@@ -199,6 +215,7 @@ Pra Laurinha: Ter fé em Jeová.
 ```
 
 **17. O que devemos estar determinados a fazer?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Não queremos permitir que o Diabo acabe com nossa união ou nos desanime com suas táticas: Jeová e Jesus prometeram continuar do nosso lado se nos apegarmos a eles, nossos irmãos estão lutando junto com a gente, e queremos seguir o conselho de Jesus de sermos bondosos com quem se opõe a nós (Lucas 6:27, 28). Estamos determinados a não ser enganados pelas táticas de Satanás, com a certeza de que podemos vencer nossa luta contra as forças espirituais malignas.
@@ -211,18 +228,21 @@ Pra Laurinha: Não deixar Satanás ganhar.
 @RECAP QUAL É A SUA RESPOSTA?
 
 **Como Satanás tenta destruir a união que temos com nossos irmãos?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Ele usa o ciúme, como aconteceu com Saul contra Davi (1 Samuel 18:9-11), e usa as diferenças de opinião, personalidade e cultura entre nós, querendo que pensemos que não é possível nos dar bem uns com os outros (Efésios 4:25-27; 1 Coríntios 12:12).
 ```
 
 **Como Satanás tenta nos desanimar para deixarmos de lado nosso trabalho de pregação?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Usando a perseguição e a oposição, esperando que gastemos nosso tempo e energia tentando corrigir injustiças ou nos vingar, em vez de continuar pregando as boas novas (Romanos 12:19-21; Eclesiastes 1:15).
 ```
 
 **Por que você tem certeza de que pode vencer a luta contra as forças espirituais malignas?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Porque a própria Bíblia garante essa vitória a quem resiste com fé em Jeová e Jesus (Tiago 4:7; 1 João 5:4, 5), e porque o segredo pra vencer, a fé, está ao alcance de todo mundo que quiser fortalecê-la (Efésios 6:16).

@@ -40,8 +40,10 @@ Comentando a imagem: uma jovem segura uma foto antiga da família enquanto a TV 
 @COMENTARIO
 O programa traz duas perguntas, cada uma com campo de resposta próprio: a pergunta específica da semana e a pergunta fixa sobre as joias espirituais.
 @PERGUNTA Jer. 48:6 — Em que sentido os moabitas se tornariam “como um junípero no deserto”? (it “Junípero” n.º 2)
+@CAMPO Sua resposta
 @RESPOSTA O versículo diz: “Fujam! Salvem a sua vida! Tornem-se como um junípero no deserto.” O Estudo Perspicaz das Escrituras, no verbete “Junípero”, explica que se trata “provavelmente” do “Juniperus phoenicia, árvore arbustiva encontrada na região do Sinai e também na área do deserto de Edom”, um “junípero-anão” de “aspecto um tanto sombrio, crescendo em áreas rochosas do deserto e em penhascos”, cujo nome traz a ideia de “nudez” ou de estar “despojado”: é assim que ficariam os moabitas ao se porem em fuga, despojados, num lugar árido (Jeremias 48:6).
 @PERGUNTA Que joias espirituais você encontrou na leitura da Bíblia desta semana?
+@CAMPO Sua resposta
 @RESPOSTA As joias listadas abaixo são a resposta a essa pergunta.
 @APLICAR Como aplicar? A comparação com o junípero mostra que perder a proteção coletiva costuma vir junto com perder a estabilidade que gerou o orgulho em primeiro lugar (Jeremias 48:11). Nesta semana, ao invés de temer isoladamente uma dificuldade, use-a como lembrete de manter a rede de apoio da congregação forte antes que a crise chegue.
 @JOIA Jeremias 47:6, 7: “Ah! A espada de Jeová! Quando você vai parar?... Como ela pode parar se Jeová lhe deu uma ordem?” A espada não age por conta própria; ela só se move e só para pela ordem de Jeová. Aprendi que nenhum instrumento de julgamento, humano ou não, tem autoridade própria: a autoridade final é sempre de Jeová.

@@ -30,6 +30,7 @@
 O que vemos aqui: a tática que o estudo inteiro examina, enfraquecer a nossa confiança em Jeová e Jesus. O artigo mostra como Satanás usou essa tática no passado, como continua usando hoje e o que podemos fazer pra não ser enganados por ele.
 
 **1. Que tática Satanás usa para tentar nos fazer parar de servir a Jeová?**
+@CAMPO Sua resposta
 
 ```
 Resposta: A partir do momento em que decidimos servir a Jeová, Satanás e seus demônios se tornam nossos inimigos, e eles não cansam de tentar nos afastar de Jeová. Uma de suas táticas é nos fazer duvidar de que Jeová e Jesus realmente se importam com a gente (2 Coríntios 11:14; Tiago 1:6).
@@ -42,6 +43,7 @@ Pra Laurinha: Satanás mente sobre Jeová.
 ```
 
 **2. Por que é importante confiarmos em Jeová e Jesus?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Porque somos soldados numa guerra espiritual contra "forças espirituais malignas" (Efésios 6:12), e assim como um soldado que perde a confiança no comandante pode parar de obedecer ordens, custando a própria vida, se perdermos a confiança em Jeová e Jesus, provavelmente vamos deixar de obedecê-los e perder o apoio deles.
@@ -58,6 +60,7 @@ A nota "a" do artigo diz: "Satanás não causa diretamente todas as dificuldades
 ## SATANÁS CONTOU MENTIRAS SOBRE JEOVÁ E JESUS
 
 **3. Como Satanás enfraqueceu a confiança que Eva tinha em Jeová?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Satanás perguntou pra Eva: "Foi isso mesmo que Deus disse, que vocês não devem comer de toda árvore do jardim?" (Gênesis 3:1-5), plantando a ideia de que Jeová estava sendo restritivo demais e não fazia o que era melhor pra ela e Adão. Infelizmente, os dois ficaram do lado de Satanás e viraram as costas pra Jeová, a Pessoa que tinha dado tudo pra eles (Gênesis 3:6).
@@ -70,6 +73,7 @@ Pra Laurinha: Satanás mentiu pra Eva.
 ```
 
 **4. Satanás queria que Jó acreditasse em que mentiras?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Satanás usou os três falsos amigos de Jó pra fazer com que ele duvidasse do amor de Jeová e achasse que Deus não dava valor à fidelidade dele (Jó 22:1-3). O Diabo achava que, se Jó passasse por sofrimento muito grande, ele iria parar de servir a Deus. Apesar das provações, Jó continuou fiel ao seu Amigo Jeová (Jó 27:1, 5).
@@ -82,6 +86,7 @@ Pra Laurinha: Que Jeová não amava Jó.
 ```
 
 **5. Como Satanás tentou impedir as pessoas de seguir a Jesus? (Mateus 11:19)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Satanás usou líderes religiosos e outras pessoas que odiavam Jesus pra espalhar mentiras sobre ele. Muitas pessoas acreditaram nessas mentiras, acusaram Jesus de ser um criminoso e o mataram (Mateus 11:19; 27:27-31; Marcos 14:55, 56; João 8:41-45).
@@ -94,6 +99,7 @@ Pra Laurinha: Satanás contou mentiras sobre Jesus.
 ```
 
 **6-7. De que maneiras Satanás tentou parar o trabalho de pregação dos primeiros discípulos de Jesus?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Primeiro, Satanás tentou criar dúvidas sobre a ressurreição de Jesus, espalhando a mentira de que os discípulos tinham roubado o corpo dele (Mateus 28:11-15). Depois, usou a perseguição pra tentar assustar os seguidores, querendo que achassem o trabalho difícil demais (Atos 7:57-8:1; 12:1-3; 28:22). Mas a maioria continuou firme, percebendo que quem estava por trás das dificuldades era Satanás e os demônios (Atos 4:18-20; 1 Pedro 5:8).
@@ -110,6 +116,7 @@ Pra Laurinha: Com mentiras e com medo.
 O que aprendemos nesse trecho: como a mesma tática de plantar dúvida continua hoje, através da religião falsa, do sofrimento e das redes sociais.
 
 **8. Como Satanás usa a religião falsa para espalhar mentiras sobre Jeová e Jesus?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Satanás é "o pai da mentira" (João 8:44), e ele cega a mente das pessoas pra que não entendam quem Jeová e Jesus realmente são (2 Coríntios 4:3, 4). Muitos líderes religiosos ensinam que o Pai e o Filho são a mesma pessoa, então as pessoas acabam adorando o Filho e deixando o Pai de lado, nem conhecendo o nome dele (Mateus 4:10; João 4:23).
@@ -122,6 +129,7 @@ Pra Laurinha: A religião falsa mente sobre Jeová.
 ```
 
 **9. Por meio da religião falsa, Satanás tem impedido as pessoas de aprender o quê? (Jeremias 23:26, 27)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Satanás tenta impedir as pessoas de conhecer o nome de Deus, pra que não desenvolvam uma amizade achegada com Jeová (Jeremias 23:26, 27). Ele também fez com que o nome de Deus, comparado a uma torre forte de proteção (Provérbios 18:10), fosse tirado de muitas traduções da Bíblia, e está por trás da mentira de que Jeová é o causador do sofrimento; por isso muitos têm medo de Deus e não conseguem enxergá-lo como amigo (Tiago 4:8).
@@ -134,6 +142,7 @@ Pra Laurinha: O nome de Jeová.
 ```
 
 **10. O que poderia fazer um servo de Jeová ficar com raiva dele?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Quando enfrentamos desafios, podemos pensar que Jeová não se importa com a gente: exatamente o que Satanás quer, esperando que fiquemos com raiva de Jeová por ele permitir que o sofrimento continue (Provérbios 19:3). Esse pensamento poderia nos afastar de Jeová e nos levar a fazer coisas que agradam Satanás.
@@ -146,6 +155,7 @@ Pra Laurinha: Achar que Jeová não se importa.
 ```
 
 **11. Como Satanás tem criado dúvidas sobre os padrões de Jeová? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Satanás usa as redes sociais pra isso: muitas pessoas dizem ali que os padrões de moral da Bíblia estão ultrapassados e que cada um deve escolher seus próprios padrões. Fica claro que Satanás, "o governante do mundo", tem conseguido confundir as pessoas sobre o que é certo e errado (João 14:30; Isaías 5:20; 1 Timóteo 4:1, 2).
@@ -158,6 +168,7 @@ Pra Laurinha: Ele chama o errado de certo.
 ```
 
 **12. Por que não devemos dar ouvidos às ideias do mundo de Satanás?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Porque dar ouvidos a essas ideias pode nos afastar de Jeová, do jeito que aconteceu com Shannon, uma irmã de 20 anos que percebeu que as amizades e os padrões de moral que aprendia na escola estavam mudando a maneira dela pensar. A nota "b" do artigo diz: "O nome foi mudado."
@@ -170,6 +181,7 @@ Pra Laurinha: O mundo ensina coisas erradas.
 ```
 
 **13. O que você aprendeu com a experiência de Shannon?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Shannon percebeu que precisava se esforçar pra manter sua amizade com Jeová e Jesus. Ela orou e agiu em harmonia com as orações, pesquisando nas publicações. O vídeo *Os Jovens Perguntam: Como Fazer Verdadeiros Amigos?* a ajudou muito, porque mostrava uma irmã com desafios parecidos que foi humilde e pediu ajuda pros pais. Shannon fez o mesmo: os pais, os anciãos e irmãs maduras a ajudaram a se libertar das amizades ruins.
@@ -186,6 +198,7 @@ Pra Laurinha: Pedir ajuda faz bem.
 O que aprendemos nesse trecho: dois caminhos concretos pra fortalecer a confiança em Jeová e Jesus, e a garantia final de que a luta pode ser vencida.
 
 **14. O que podemos fazer para que Satanás não enfraqueça a nossa fé? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Precisamos escolher bem nossas amizades (Tiago 4:4) e tomar cuidado pra não acreditar em tudo que lemos ou ouvimos neste mundo de Satanás, já que muitas informações se baseiam em mentiras ou meias-verdades. Isso não vai acontecer se estudarmos a Bíblia e nossas publicações, assistirmos a todas as reuniões e tivermos amigos que amam a Jeová (Provérbios 13:20; Atos 17:11).
@@ -198,6 +211,7 @@ Pra Laurinha: Estudar a Bíblia me protege.
 ```
 
 **15. Como podemos fortalecer nossa confiança de que Jeová e Jesus nos amam muito?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Estudando a Bíblia com cuidado, meditando em relatos que mostram o quanto Jeová e Jesus se importam com os humanos. Jeová diz que o amor dele por seus servos é maior do que o de uma mãe por um filho (Isaías 49:15), e chama quem ama o nome dele de "propriedade especial" (Malaquias 3:16, 17). Jesus deixou claro o tamanho do amor dele quando falou sobre o próprio sacrifício (João 15:12, 13).
@@ -210,6 +224,7 @@ Pra Laurinha: Jeová me ama muito.
 ```
 
 **16. Por que é bom lembrar das vezes que Jeová já ajudou a nós e a outros? (Salmo 118:5, 6)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Porque meditar nas ajudas que já recebemos: orações respondidas, momentos em que Jeová deu a força necessária: fortalece a certeza de que, não importam os desafios futuros, Jeová e Jesus vão estar do nosso lado. Também vale perguntar a outros irmãos como eles já sentiram essa ajuda (Provérbios 22:17).
@@ -222,6 +237,7 @@ Pra Laurinha: Jeová já me ajudou antes.
 ```
 
 **17. De acordo com João 10:29, que garantia Jesus dá a todos aqueles que continuam amando a ele e a seu Pai?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Jesus garante que, enquanto continuarmos amando a ele e ao Pai, ninguém “pode arrancá-las da mão do Pai” (João 10:29). É essa mesma confiança que nos ajuda a resistir às táticas de Satanás e continuar fiéis até que ele e seus demônios sejam destruídos para sempre (Tiago 4:7; Apocalipse 20:1-3, 10).
@@ -234,6 +250,7 @@ Pra Laurinha: Ninguém me tira de Jeová.
 ```
 
 **18. O que vamos ver no próximo estudo?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Outras duas táticas que Satanás usa pra tentar destruir nossa amizade com Jeová: divisões dentro da congregação e oposição de pessoas de fora.
@@ -246,18 +263,21 @@ Pra Laurinha: Outras armas de Satanás.
 @RECAP COMO RESPONDERIA?
 
 **Que mentiras Satanás contou sobre Jeová e Jesus no passado?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Ele mentiu pra Eva que Jeová era restritivo demais e não queria o melhor pra ela (Gênesis 3:1-5); usou os falsos amigos de Jó pra sugerir que Deus não valorizava a fidelidade dele (Jó 22:1-3); e espalhou mentiras através de líderes religiosos e outras pessoas sobre o próprio caráter de Jesus, levando à morte dele (Mateus 11:19; 27:27-31; Marcos 14:55, 56; João 8:41-45).
 ```
 
 **Que mentiras Satanás tem contado sobre Jeová e Jesus hoje?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Que o Pai e o Filho são a mesma pessoa, apagando a identidade própria de Jeová (Mateus 4:10; João 4:23); que Jeová é o causador do sofrimento; e, através das redes sociais, que os padrões morais da Bíblia estão ultrapassados (Isaías 5:20).
 ```
 
 **O que convence você de que Jeová e Jesus te amam muito e se importam com você?**
+@CAMPO Sua resposta
 
 ```
 Resposta: O tamanho da comparação que a própria Bíblia usa: um amor maior do que o de uma mãe por um filho (Isaías 49:15): o fato de sermos chamados de "propriedade especial" dele (Malaquias 3:16, 17), o sacrifício que Jesus descreveu como a maior prova de amor que existe (João 15:12, 13), e a garantia de que ninguém vai conseguir nos arrancar da mão do Pai enquanto continuarmos amando os dois (João 10:29).

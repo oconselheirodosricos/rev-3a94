@@ -41,8 +41,10 @@ Comentando a imagem: um casal jovem visita um irmão idoso hospitalizado, o mais
 @COMENTARIO
 O programa traz duas perguntas, cada uma com campo de resposta próprio: a pergunta específica da semana e a pergunta fixa sobre as joias espirituais.
 @PERGUNTA Jer. 40:12 — Como este versículo confirma que Jeová deu ao seu povo a boa terra descrita em Deuteronômio 8:6-8? (w06 15/6 16 § 4)
+@CAMPO Sua resposta
 @RESPOSTA Jeremias 40:12 registra que os judeus espalhados por outras terras, ao saberem que Gedalias tinha sido nomeado governador, voltaram a Judá e “recolheram vinho e frutas de verão em quantidade muito grande”. Deuteronômio 8:7, 8 já tinha prometido “uma terra de correntes de água, de fontes e de nascentes . . . uma terra de trigo e cevada, de videiras, figueiras e romãzeiras, uma terra de azeite e mel”. Mesmo depois da devastação da guerra e do cerco babilônico, a terra ainda produzia fartura assim que teve um pouco de paz: prova de que a promessa de Deuteronômio não era exagero, era descrição real da fertilidade daquela terra.
 @PERGUNTA Que joias espirituais você encontrou na leitura da Bíblia desta semana?
+@CAMPO Sua resposta
 @RESPOSTA As joias listadas abaixo são a resposta a essa pergunta.
 @APLICAR Como aplicar? O detalhe de a terra voltar a produzir fartura rápido, assim que a violência parou, é um lembrete de que a provisão de Jeová para necessidades básicas continua disponível mesmo depois de uma crise severa: o problema raramente é a provisão secar, é a violência ou o medo impedir a colheita. Nesta semana, ao orar por sustento, pense também em orar por paz suficiente pra usar o que já está disponível.
 @JOIA Jeremias 40:4: “Se você achar bom vir comigo para Babilônia, venha, e eu cuidarei de você. Mas, se você não quiser vir comigo para Babilônia, não venha. Veja! O país inteiro está diante de você.” O comandante babilônico deu a Jeremias uma escolha genuína, não uma ordem disfarçada de opção. Aprendi que Jeová às vezes usa até quem não o serve pra abrir um caminho de liberdade real pros seus fiéis, sem forçar a mão deles.
@@ -106,10 +108,13 @@ Depois o programa manda **Mostre o VÍDEO *Recuperei a Alegria e o Sentido na Vi
 
 O programa fecha com a linha: "Honrar e ajudar as viúvas é uma parte importante da nossa adoração a Jeová. (Tia. 1:27; nota de estudo "Mostre consideração pelas" em 1 Tim. 5:3, nwtsty)", e a pergunta final sobre como honrar as viúvas hoje.
 @PERGUNTA Usando as ferramentas de pesquisa disponíveis no seu idioma, encontre um ou dois relatos bíblicos que falam de viúvas. Como essas histórias mostram que Jeová ama e cuida das viúvas?
+@CAMPO Sua resposta
 @RESPOSTA Alguns relatos possíveis pra pesquisar: a viúva de Sarefá, sustentada com farinha e azeite durante a fome através de Elias (1 Reis 17:8-16); a viúva com dois filhos que Eliseu ajudou a não perder pra dívida, multiplicando o azeite dela (2 Reis 4:1-7); Rute, viúva estrangeira que Jeová cuidou através de Boaz e da própria Noemi; e a profetisa Ana (Lucas 2:36-38). Nos três primeiros relatos, Jeová cuida de necessidade concreta (comida, sustento, segurança), não só oferece consolo abstrato.
 @PERGUNTA O que você aprendeu desse vídeo sobre como Jeová cuida das viúvas hoje?
+@CAMPO Sua resposta
 @RESPOSTA Que o cuidado de Jeová passa por gente concreta (a amiga que respondia "estou aqui, estou te ouvindo"), por hábitos que sustentam (a rotina de pioneira, ir às reuniões mesmo chorando) e por promessas específicas (a alegria de Jeová como força, a certeza da ressurreição).
 @PERGUNTA Como podemos honrar as viúvas hoje?
+@CAMPO Sua resposta
 @RESPOSTA Honrar as viúvas hoje passa por reconhecer necessidades concretas, não só emocionais: uma visita real (como a da imagem desta parte), ajuda prática com tarefas que o marido fazia, inclusão ativa em atividades da congregação pra que a viúva não vire "esquecida" com o tempo, e disposição de simplesmente ouvir sem tentar consertar o sentimento na hora. Tiago 1:27 chama isso de parte da “adoração que é pura e imaculada”: não é caridade opcional, é adoração de verdade.
 @APLICAR Como aplicar? Escolha, das formas de honrar mencionadas, uma ação concreta e específica pra esta semana com uma viúva real da sua congregação: não uma intenção genérica de "ajudar mais". A nota de estudo de 1 Timóteo 5:3 (nwtsty) explica que "mostrar consideração" envolve reconhecimento prático, não só respeito de palavra.
 @COMPLEMENTAR Repare que Holly Wood não descreve um momento em que a dor simplesmente passou. Ela diz: “Não tem problema ficar triste por um tempo”, e conta que voltar a sair de pioneira “foi como uma âncora para mim”. Isso é uma correção útil pra quem espera que confiar em Jeová signifique parar de sentir a perda: o vídeo mostra alguém que sente a perda inteira e mesmo assim confia.

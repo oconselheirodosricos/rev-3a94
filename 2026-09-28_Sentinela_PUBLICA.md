@@ -30,6 +30,7 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 ---
 
 **1. Como você se sente quando vê um estudante da Bíblia fazendo progresso?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que sentimos ao ver alguém progredir espiritualmente, e a quem pertence o crédito por esse progresso.
@@ -39,6 +40,7 @@ Resposta: Fico feliz de verdade, mas o crédito é de Jeová, já que é ele que
 ```
 
 **2. O que Jeová deseja para os estudantes da Bíblia? (1 Timóteo 2:3, 4)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que Jeová realmente quer que aconteça na vida de um estudante da Bíblia.
@@ -48,6 +50,7 @@ Resposta: Que todo tipo de pessoas venha a ter um conhecimento exato da verdade,
 ```
 
 **3. O que vamos considerar neste estudo?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Qual é o roteiro deste estudo.
@@ -61,6 +64,7 @@ Resposta: Por que os estudantes precisam conhecer bem a Jeová, como ajudá-los 
 O que vemos aqui: conhecer fatos sobre Jeová não é a mesma coisa que conhecê-lo de verdade, e é esse conhecimento profundo, não apenas um conjunto de fatos, que leva um estudante da Bíblia a amar e obedecer a Jeová de coração.
 
 **4. De acordo com Marcos 12:30, qual é o nosso principal objetivo ao dirigir um estudo bíblico?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Qual é o verdadeiro alvo de dirigir um estudo bíblico com alguém.
@@ -70,6 +74,7 @@ Resposta: Ajudar o estudante a amar a Jeová de todo o coração, alma, mente e 
 ```
 
 **5. O que o amor a Jeová vai motivar seu estudante da Bíblia a fazer?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que muda na prática quando o amor a Jeová é genuíno.
@@ -79,6 +84,7 @@ Resposta: A obedecer a Jeová e continuar leal a ele, porque amor a Deus signifi
 ```
 
 **6. À medida que o seu estudante conhecer melhor a Jeová, o que ele vai conseguir fazer? Dê um exemplo.**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que o conhecimento profundo de Jeová permite fazer na prática.
@@ -88,6 +94,7 @@ Resposta: Vai conseguir tomar boas decisões em qualquer situação, porque apre
 ```
 
 **7. O que ajudou José a tomar uma boa decisão?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que estava por trás da coragem de José diante da esposa de Potifar.
@@ -101,6 +108,7 @@ Resposta: Conhecer bem a Jeová desde criança, o suficiente pra reconhecer o pe
 O que aprendemos nesse trecho: não basta o estudante saber O QUE Jeová fez; ele precisa entender POR QUE Jeová fez, e é aí que perguntas bem escolhidas ensinam mais do que respostas prontas.
 
 **8. Como você pode usar o livro Seja Feliz para Sempre! para ajudar um estudante da Bíblia a conhecer a Jeová?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Como uma publicação pode ajudar o estudante a conhecer não só fatos, mas a personalidade de Jeová.
@@ -113,6 +121,7 @@ Resposta: Usando as perguntas do próprio livro sobre a personalidade de Jeová,
 O livro *Seja Feliz para Sempre!* tem muitas perguntas que ajudam os estudantes a conhecer melhor a Jeová. Alguns exemplos citados pelo artigo: “O que Jeová sente por aqueles que pregam as boas novas?” (lição 21); “Pensando em tudo que você já aprendeu sobre Jeová e Jesus, por que você pode ter certeza de que o julgamento deles [no Armagedom] vai ser justo?” (lição 33); “Como Jeová se sente quando você faz a coisa certa e obedece a ele? Por quê?” (lição 34); “Como você acha que Jeová se sentiria se nós nos casássemos com alguém que não ama a ele?” (lição 42); “Até que ponto vai o perdão de Jeová?” (lição 56); “Como o modo de Jeová lidar com pecadores mostra que ele é razoável, misericordioso e amoroso?” (lição 57).
 
 **9-10. (a) O que vai ajudar o estudante a tirar mais proveito da sua leitura da Bíblia? (Tiago 5:11) (b) Dê um exemplo de como um relato da Bíblia pode nos ensinar o que agrada e o que desagrada a Jeová.**
+@CAMPO Suas respostas
 
 ```
 O que a pergunta quer dizer: Como ler a Bíblia de um jeito que revela a personalidade de Jeová, e um exemplo prático disso.
@@ -122,6 +131,7 @@ Resposta: (a) Perguntar a cada relato o que ele ensina sobre Jeová (Tiago 5:11)
 ```
 
 **11. Como podemos ajudar nosso estudante a ver que o estudo da Bíblia é um presente de Jeová?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Como manter claro, pro estudante, de onde vem o mérito pelo que ele está aprendendo.
@@ -135,6 +145,7 @@ Resposta: Deixando claro que quem merece o louvor pelo que o estudante aprende �
 O que aprendemos nesse trecho: conhecimento que não vira decisão prática fica pela metade, e o artigo mostra três situações reais, um relato difícil de entender, uma dificuldade na congregação, uma decisão importante, em que o estudante precisa aprender a usar o que já sabe sobre Jeová.
 
 **12-13. O que você pode ensinar seu estudante a fazer quando ele acha difícil entender um relato da Bíblia? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Como ajudar um estudante que fica confuso com algo que Jeová fez no passado.
@@ -144,6 +155,7 @@ Resposta: Ensinar o estudante a recorrer ao caráter já conhecido de Jeová, mi
 ```
 
 **14. Como você pode ajudar um estudante que está tendo dificuldade para se dar bem com alguém na congregação?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que fazer quando o estudante está magoado com um irmão ou irmã.
@@ -153,6 +165,7 @@ Resposta: Pensar em como Jeová vê aquele irmão, o sacrifício que fez por ele
 ```
 
 **15-16. (a) Como um estudante da Bíblia pode imitar Jesus ao tomar uma decisão importante? (João 8:29) (b) Como Marianne ajudou sua estudante a tomar uma boa decisão? (Veja também a imagem.)**
+@CAMPO Suas respostas
 
 ```
 O que a pergunta quer dizer: Como decidir bem numa escolha difícil da vida, e um exemplo real de como ajudar alguém nisso.
@@ -166,6 +179,7 @@ Resposta: (a) Se perguntando o que agradaria a Jeová, com base no que já apren
 O que aprendemos nesse trecho: o alvo do estudo bíblico não é acumular fatos, é conhecer Jeová de um jeito que muda a vida agora e garante um futuro com ele.
 
 **17. O que é mais importante que os estudantes da Bíblia aprendam?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que deve vir antes de qualquer doutrina ou fato aprendido.
@@ -175,6 +189,7 @@ Resposta: Que conheçam bem a Jeová, não só doutrinas e fatos; isso é o que 
 ```
 
 **18. Que bênçãos aqueles que conhecem a Jeová recebem?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que ganha, de fato, quem chega a conhecer Jeová.
@@ -186,18 +201,21 @@ Resposta: Felicidade real já agora (Salmo 25:12-15) e vida eterna no futuro (1 
 @RECAP COMO RESPONDERIA?
 
 **Por que um estudante da Bíblia precisa conhecer bem a Jeová?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Porque só conhecimento profundo, não apenas um conjunto de fatos, causa o efeito que muda a vida da pessoa (1 Timóteo 2:3, 4) e abre caminho pra ela amar a Jeová de todo o coração, alma, mente e força, o maior mandamento (Marcos 12:30). É esse conhecimento que motivou José a recusar o pecado com a esposa de Potifar (Gênesis 39:7-9) e que, no fim, é a própria definição bíblica de vida eterna: “conheçam a ti, o único Deus verdadeiro” (João 17:3).
 ```
 
 **Como podemos ajudar um estudante a conhecer a personalidade de Jeová?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Usando perguntas, do jeito que o próprio Jeová usou com Jó (Jó 38:1 a 41:34), como as que o livro *Seja Feliz para Sempre!* já traz prontas. Cada relato bíblico lido pode virar as perguntas "por que Jeová incluiu isso em sua Palavra?" e "que qualidades dele eu consigo aprender?" (Tiago 5:11), do jeito que o exemplo de Daniel na cova dos leões revela o que agrada e o que desagrada a Jeová (Daniel 6:10, 22).
 ```
 
 **Como podemos ajudar um estudante a usar o que já aprendeu sobre Jeová?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Incentivando o estudante a recorrer ao que já sabe sobre o caráter de Jeová diante de um relato difícil (2 Pedro 3:9; Êxodo 34:6, 7), de uma dificuldade com um irmão na congregação (João 3:16; Salmo 133:1) ou de uma decisão importante da vida, do jeito que Marianne ajudou sua estudante a meditar em como Jeová se sentiria antes de decidir (João 8:29).

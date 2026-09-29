@@ -30,6 +30,7 @@
 O que aprendemos nesse trecho: a tática que o estudo inteiro examina, enfraquecer a nossa confiança em Jeová e Jesus. O artigo mostra como Satanás usou essa tática no passado, como continua usando hoje e o que podemos fazer pra não ser enganados por ele.
 
 **1. Que tática Satanás usa para tentar nos fazer parar de servir a Jeová?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Que tática Satanás usa contra quem serve a Jeová.
@@ -39,6 +40,7 @@ Resposta: Uma das táticas de Satanás é nos fazer duvidar de que Jeová e Jesu
 ```
 
 **2. Por que é importante confiarmos em Jeová e Jesus?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que está em jogo quando perdemos a confiança em Jeová.
@@ -52,6 +54,7 @@ A nota "a" do artigo diz: "Satanás não causa diretamente todas as dificuldades
 ## SATANÁS CONTOU MENTIRAS SOBRE JEOVÁ E JESUS
 
 **3. Como Satanás enfraqueceu a confiança que Eva tinha em Jeová?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O primeiro exemplo bíblico dessa tática, logo no início da história humana.
@@ -61,6 +64,7 @@ Resposta: Satanás distorceu o que Jeová tinha realmente dito, fazendo Eva acha
 ```
 
 **4. Satanás queria que Jó acreditasse em que mentiras?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Como Satanás tentou usar o sofrimento de Jó contra a fé dele.
@@ -70,6 +74,7 @@ Resposta: Satanás queria que Jó achasse que Jeová não se importava com ele n
 ```
 
 **5. Como Satanás tentou impedir as pessoas de seguir a Jesus? (Mateus 11:19)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: A mesma tática aplicada contra o próprio Jesus.
@@ -79,6 +84,7 @@ Resposta: Satanás espalhou mentiras sobre o caráter de Jesus através de pesso
 ```
 
 **6-7. De que maneiras Satanás tentou parar o trabalho de pregação dos primeiros discípulos de Jesus?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: As duas táticas usadas contra os primeiros discípulos.
@@ -92,6 +98,7 @@ Resposta: Satanás usou primeiro a mentira, depois o medo da perseguição, mas 
 O que aprendemos nesse trecho: como a mesma tática continua hoje, através da religião falsa, do sofrimento e das redes sociais.
 
 **8. Como Satanás usa a religião falsa para espalhar mentiras sobre Jeová e Jesus?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O papel da religião falsa nessa tática.
@@ -101,6 +108,7 @@ Resposta: Satanás usa a religião falsa pra confundir quem é Jeová e quem é 
 ```
 
 **9. Por meio da religião falsa, Satanás tem impedido as pessoas de aprender o quê? (Jeremias 23:26, 27)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que exatamente as pessoas perdem quando não conhecem o nome de Deus.
@@ -110,6 +118,7 @@ Resposta: Satanás tem impedido as pessoas de conhecer o nome de Jeová, o que d
 ```
 
 **10. O que poderia fazer um servo de Jeová ficar com raiva dele?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Como o sofrimento pode virar uma armadilha emocional.
@@ -119,6 +128,7 @@ Resposta: Achar que Jeová não se importa quando enfrentamos desafios pode nos 
 ```
 
 **11. Como Satanás tem criado dúvidas sobre os padrões de Jeová? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Onde essa tática aparece com mais força hoje.
@@ -128,6 +138,7 @@ Resposta: Satanás usa as redes sociais pra espalhar a ideia de que os padrões 
 ```
 
 **12. Por que não devemos dar ouvidos às ideias do mundo de Satanás?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O risco real de se expor demais às ideias do mundo.
@@ -137,6 +148,7 @@ Resposta: Dar ouvidos às ideias do mundo de Satanás pode nos afastar de Jeová
 ```
 
 **13. O que você aprendeu com a experiência de Shannon?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Um exemplo real de como sair dessa armadilha.
@@ -150,6 +162,7 @@ Resposta: Aprendi que orar, pesquisar nas publicações e pedir ajuda de verdade
 O que aprendemos nesse trecho: dois caminhos concretos pra fortalecer a confiança em Jeová e Jesus, e a garantia final de que a luta pode ser vencida.
 
 **14. O que podemos fazer para que Satanás não enfraqueça a nossa fé? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Ações práticas de proteção.
@@ -159,6 +172,7 @@ Resposta: Precisamos escolher bem nossas amizades e nos fortalecer com estudo, r
 ```
 
 **15. Como podemos fortalecer nossa confiança de que Jeová e Jesus nos amam muito?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Um caminho concreto pra crescer em confiança.
@@ -168,6 +182,7 @@ Resposta: Podemos fortalecer essa confiança meditando em relatos bíblicos e em
 ```
 
 **16. Por que é bom lembrar das vezes que Jeová já ajudou a nós e a outros? (Salmo 118:5, 6)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O valor prático de olhar pra trás.
@@ -177,6 +192,7 @@ Resposta: Lembrar de ajudas já recebidas fortalece nossa certeza de que Jeová 
 ```
 
 **17. De acordo com João 10:29, que garantia Jesus dá a todos aqueles que continuam amando a ele e a seu Pai?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: A promessa final de segurança.
@@ -186,6 +202,7 @@ Resposta: Jesus garante que ninguém vai conseguir nos arrancar da mão do Pai e
 ```
 
 **18. O que vamos ver no próximo estudo?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que vem a seguir na série.
@@ -197,18 +214,21 @@ Resposta: Vamos ver como Satanás usa divisões na congregação e oposição ex
 @RECAP COMO RESPONDERIA?
 
 **Que mentiras Satanás contou sobre Jeová e Jesus no passado?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Ele mentiu pra Eva que Jeová era restritivo demais (Gênesis 3:1-5); usou os falsos amigos de Jó pra sugerir que Deus não valorizava a fidelidade dele (Jó 22:1-3); e espalhou mentiras sobre o caráter de Jesus através de líderes religiosos e outras pessoas, levando à morte dele (Mateus 11:19; 27:27-31; Marcos 14:55, 56; João 8:41-45).
 ```
 
 **Que mentiras Satanás tem contado sobre Jeová e Jesus hoje?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Que o Pai e o Filho são a mesma pessoa (Mateus 4:10; João 4:23); que Jeová é o causador do sofrimento; e, através das redes sociais, que os padrões morais da Bíblia estão ultrapassados (Isaías 5:20).
 ```
 
 **O que convence você de que Jeová e Jesus te amam muito e se importam com você?**
+@CAMPO Sua resposta
 
 ```
 Resposta: A comparação que a Bíblia usa, um amor maior do que o de uma mãe por um filho (Isaías 49:15), o fato de sermos "propriedade especial" dele (Malaquias 3:16, 17), o sacrifício de Jesus (João 15:12, 13), e a garantia de que ninguém vai nos arrancar da mão do Pai (João 10:29).

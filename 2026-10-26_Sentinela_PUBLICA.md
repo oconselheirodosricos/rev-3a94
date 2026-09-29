@@ -29,6 +29,7 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 ---
 
 **1. O que Zacarias disse em sua profecia?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que Zacarias declarou, cheio de espírito santo, sobre o próprio filho recém-nascido.
@@ -42,6 +43,7 @@ Resposta: Além de dizer o que João faria, Zacarias profetizou sobre três cois
 O que vemos aqui: Zacarias profetiza sobre um "poderoso salvador" ainda antes de Jesus nascer, e o texto explica de que exatamente esse Salvador nos livra.
 
 **2. (a) De acordo com Lucas 1:67-73, o que Deus prometeu ao seu povo? (b) Quem é o “poderoso salvador” mencionado em Lucas 1:69?**
+@CAMPO Sua respostas
 ```
 O que a pergunta quer dizer: Quando e como a promessa de um Salvador se tornou realidade.
 O que o texto nos mostra: Deus tinha prometido dar ao seu povo um presente maravilhoso, a salvação. Zacarias disse: "[Jeová] fez surgir para nós um poderoso salvador na casa de Davi" (Lucas 1:69). Esse "poderoso salvador" surgiu quando Jesus foi batizado, aos 30 anos, sendo ungido com espírito santo e se tornando o Messias (Mateus 3:16, 17).
@@ -50,6 +52,7 @@ Resposta: (a) Deus tinha prometido dar ao seu povo um presente maravilhoso: a sa
 ```
 
 **3. De que inimigos os judeus precisavam ser salvos?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Qual era o inimigo real por trás do sofrimento daquele povo.
@@ -59,6 +62,7 @@ Resposta: Eles precisavam ser salvos de Satanás, do pecado e da morte, não das
 ```
 
 **4. De que inimigos precisamos ser salvos hoje?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Se esse mesmo inimigo ainda age contra nós.
@@ -68,6 +72,7 @@ Resposta: Satanás tenta nos enganar pra nos afastar de Jeová, e usa pessoas e 
 ```
 
 **5. De que maneiras Jesus nos salva do pecado?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que exatamente Jesus faz por nós enquanto ainda somos imperfeitos.
@@ -77,6 +82,7 @@ Resposta: Jesus nos ensinou a adorar Jeová certo e deu a vida como resgate, tor
 ```
 
 **6. O que Jesus vai fazer como Rei no “trono de Davi”? (Veja também a imagem.)**
+@CAMPO Sua resposta
 ```
 O que a pergunta quer dizer: O plano completo, não só o começo dele.
 O que o texto nos mostra: Desde 1914, Jesus reina no céu (Lucas 1:32, 33). No Armagedom, ele vai destruir os inimigos de Deus; durante o Reinado de Mil Anos, vai ressuscitar os mortos e ajudar os humanos a se tornarem perfeitos (João 5:28). No fim dos mil anos, o pecado e a morte terão acabado (1 Coríntios 15:26, 55-57), e Satanás será eliminado (Apocalipse 20:7-10).
@@ -89,6 +95,7 @@ Resposta: Depois do Armagedom, durante o Reinado de Mil Anos, Jesus vai ressusci
 O que aprendemos nesse trecho: por causa do resgate, temos o privilégio de servir a Jeová "destemidamente", e isso vale mesmo pra quem ainda luta contra sentimentos de culpa.
 
 **7. De acordo com Lucas 1:74, 75, que privilégio Jeová dá ao seu povo?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que ganhamos, na prática, por causa do sacrifício de Jesus.
@@ -98,6 +105,7 @@ Resposta: Temos o privilégio de prestar serviço sagrado a Jeová em todos os a
 ```
 
 **8. Do que não precisamos ter medo?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Que dois medos específicos esse serviço nos livra.
@@ -107,6 +115,7 @@ Resposta: Servimos sem medo da morte, porque confiamos na ressurreição, e sem 
 ```
 
 **9. Que dificuldade alguns cristãos têm?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: A razão real por trás dessa dúvida comum.
@@ -116,6 +125,7 @@ Resposta: Podem sentir que não merecem o amor de Jeová por causa de algo ruim 
 ```
 
 **10-11. O que podemos fazer se estamos sofrendo em sentido emocional e achamos que Jeová não nos ama mais? Ilustre.**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que fazer, na prática, quando a culpa insiste em voltar, e como um processo médico comum ilustra a recuperação espiritual.
@@ -129,6 +139,7 @@ Resposta: Devemos confiar no amor de Jeová e continuar a rotina espiritual, ora
 O que aprendemos nesse trecho: assim como João apontou pra Jesus, hoje cabe a nós continuar espalhando a mesma mensagem, e o tempo que resta torna isso mais urgente.
 
 **12. Como João Batista preparou os caminhos de Jeová? (Lucas 1:76-79)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que João fez, na prática, pra cumprir essa profecia sobre ele mesmo.
@@ -138,6 +149,7 @@ Resposta: João pregou o arrependimento, identificou Jesus como o Messias public
 ```
 
 **13. Em que sentido a vinda do Messias seria “um amanhecer” para o povo de Deus?**
+@CAMPO Sua resposta
 ```
 O que a pergunta quer dizer: A escala da tarefa que estava por trás de uma única voz.
 O que o texto nos mostra: A vinda do Messias seria "um amanhecer", um acontecimento que mudaria a vida de todas as pessoas. Essa notícia precisava chegar ao maior número possível de gente, e João sozinho não daria conta.
@@ -146,6 +158,7 @@ Resposta: No sentido de que seria “o início de uma nova era, um acontecimento
 ```
 
 **14. Que trabalho importante Jesus e seus discípulos fizeram? (Isaías 61:1, 2)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que Jesus fez além de simplesmente pregar pessoalmente.
@@ -155,6 +168,7 @@ Resposta: Jesus pregou com compaixão genuína e treinou seus discípulos pra co
 ```
 
 **15. Por que hoje a pregação é mais importante do que nunca?**
+@CAMPO Sua resposta
 ```
 O que a pergunta quer dizer: O que torna a pregação de hoje mais urgente do que em qualquer outra época.
 O que o texto nos mostra: Em breve vem uma "grande tribulação, como nunca ocorreu" (Mateus 24:21). Talvez mais pessoas aceitem as boas novas nesse período justamente porque vai se lembrar da mensagem que já pregamos hoje.
@@ -163,6 +177,7 @@ Resposta: Porque as pessoas que ouvirem hoje podem se lembrar da mensagem durant
 ```
 
 **16. O que você está decidido a fazer? (Veja também as imagens.)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Como fechar o estudo com uma decisão pessoal concreta.
@@ -174,18 +189,21 @@ Resposta: Devemos dar valor ao presente da salvação, ao privilégio de servir 
 @RECAP DE ACORDO COM A PROFECIA EM LUCAS 1:68-79, . . .
 
 **que presente maravilhoso Jeová nos deu?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Um poderoso salvador, Jesus, que Jeová prometeu por meio da profecia de Zacarias (Lucas 1:69) e que se cumpriu quando Jesus foi batizado e ungido como Messias.
 ```
 
 **que privilégio temos por causa do sacrifício de Jesus?**
+@CAMPO Sua resposta
 
 ```
 Resposta: O privilégio de prestar destemidamente serviço sagrado a Jeová, sem medo da morte nem medo de rejeição por sermos pecadores (Lucas 1:74, 75).
 ```
 
 **qual é a nossa responsabilidade?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Continuar espalhando a mensagem de salvação, do jeito que João Batista fez, porque em breve vem a grande tribulação e pregar agora pode ajudar pessoas a se lembrarem e aceitarem as boas novas depois.

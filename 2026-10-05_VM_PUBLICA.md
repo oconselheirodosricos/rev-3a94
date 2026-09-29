@@ -39,8 +39,10 @@ Comentando a imagem: um casal jovem visita um irmão idoso hospitalizado, o mais
 @COMENTARIO
 O programa traz duas perguntas, cada uma com campo de resposta próprio: a pergunta específica da semana e a pergunta fixa sobre as joias espirituais.
 @PERGUNTA Jer. 40:12 — Como este versículo confirma que Jeová deu ao seu povo a boa terra descrita em Deuteronômio 8:6-8? (w06 15/6 16 § 4)
+@CAMPO Sua resposta
 @RESPOSTA Jeremias 40:12 registra que os judeus espalhados por outras terras, ao saberem que Gedalias tinha sido nomeado governador, voltaram a Judá e “recolheram vinho e frutas de verão em quantidade muito grande”. Deuteronômio 8:7, 8 já tinha prometido “uma terra de correntes de água, de fontes e de nascentes . . . uma terra de trigo e cevada, de videiras, figueiras e romãzeiras, uma terra de azeite e mel”. Mesmo depois da devastação da guerra, a terra ainda produzia fartura assim que teve um pouco de paz.
 @PERGUNTA Que joias espirituais você encontrou na leitura da Bíblia desta semana?
+@CAMPO Sua resposta
 @RESPOSTA As joias listadas abaixo são a resposta a essa pergunta.
 @APLICAR Como aplicar? O detalhe de a terra voltar a produzir fartura rápido, assim que a violência parou, é um lembrete de que a provisão de Jeová para necessidades básicas continua disponível mesmo depois de uma crise severa.
 @JOIA Jeremias 40:4: “Se você achar bom vir comigo para Babilônia, venha, e eu cuidarei de você. Mas, se você não quiser vir comigo para Babilônia, não venha. Veja! O país inteiro está diante de você.” O comandante babilônico deu a Jeremias uma escolha genuína. Aprendi que Jeová às vezes usa até quem não o serve pra abrir um caminho de liberdade real pros seus fiéis.
@@ -98,10 +100,13 @@ Depois o programa manda **Mostre o VÍDEO *Recuperei a Alegria e o Sentido na Vi
 
 O programa fecha com a linha: "Honrar e ajudar as viúvas é uma parte importante da nossa adoração a Jeová. (Tia. 1:27; nota de estudo "Mostre consideração pelas" em 1 Tim. 5:3, nwtsty)", e a pergunta final sobre como honrar as viúvas hoje.
 @PERGUNTA Usando as ferramentas de pesquisa disponíveis no seu idioma, encontre um ou dois relatos bíblicos que falam de viúvas. Como essas histórias mostram que Jeová ama e cuida das viúvas?
+@CAMPO Sua resposta
 @RESPOSTA A Bíblia registra vários exemplos de viúvas que Jeová sustentou ou defendeu; vale a pena pesquisar pelo menos dois antes da reunião e trazer o que cada um ensina sobre o cuidado dele.
 @PERGUNTA O que você aprendeu desse vídeo sobre como Jeová cuida das viúvas hoje?
+@CAMPO Sua resposta
 @RESPOSTA Que o cuidado de Jeová passa por gente concreta, por hábitos que sustentam e por promessas específicas: a alegria de Jeová como força, a certeza da ressurreição.
 @PERGUNTA Como podemos honrar as viúvas hoje?
+@CAMPO Sua resposta
 @RESPOSTA Honrar as viúvas hoje passa por reconhecer necessidades concretas: uma visita real, ajuda prática com tarefas que o marido fazia, inclusão ativa em atividades da congregação, e disposição de simplesmente ouvir sem tentar consertar o sentimento na hora. Tiago 1:27 chama isso de parte da “adoração que é pura e imaculada”, não caridade opcional.
 @APLICAR Como aplicar? Escolha uma ação concreta e específica pra esta semana com uma viúva real da sua congregação: não uma intenção genérica de "ajudar mais".
 @IMAGEM https://cms-imgp.jw-cdn.org/img/p/202026256/univ/art/202026256_univ_cnt_2_lg.jpg | Cenas do vídeo "Recuperei a Alegria e o Sentido na Vida mesmo Depois de Perder Meu Marido". Conjunto de imagens: 1. A irmã Wood participa no serviço de casa em casa. 2. Ela faz seu estudo pessoal. 3. Ela está alegre cozinhando com duas outras irmãs. |

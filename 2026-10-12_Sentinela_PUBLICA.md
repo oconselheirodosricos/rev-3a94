@@ -28,6 +28,7 @@
 ---
 
 **1. Contra quem todos nós temos que lutar? (Efésios 6:11, 12)**
+@CAMPO Sua resposta
 ```
 O que a pergunta quer dizer: Que tipo de guerra os cristãos realmente enfrentam.
 O que o texto nos mostra: Como servos de Jeová, não participamos das guerras do mundo (Isaías 2:4; João 18:36), mas estamos numa luta contra espíritos malignos (Efésios 6:11, 12). O mais importante pra vencer é confiar na ajuda de Jeová e conhecer as táticas de Satanás.
@@ -36,6 +37,7 @@ Resposta: Lutamos contra espíritos malignos, não contra pessoas ou nações, c
 ```
 
 **2. O que vamos ver neste estudo?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O roteiro das duas táticas que este estudo examina.
@@ -49,6 +51,7 @@ Resposta: Vamos ver duas táticas de Satanás: destruir nossa união com os irm�
 O que aprendemos nesse trecho: a primeira das duas táticas do estudo, com o ciúme de Saul contra Davi como estudo de caso.
 
 **3. De que maneira Satanás tenta causar divisão entre nós?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Como exatamente Satanás provoca desunião.
@@ -58,6 +61,7 @@ Resposta: Satanás usa o padrão de desconfiança do mundo pra nos influenciar a
 ```
 
 **4. Por que Saul passou a odiar Davi? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: A origem do ciúme de Saul.
@@ -67,6 +71,7 @@ Resposta: Saul teve ciúme de Davi porque o povo gostava mais dele, e Satanás q
 ```
 
 **5. Por que o Diabo quer que tenhamos ciúme dos nossos irmãos? (Tiago 3:14-16)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O motivo espiritual por trás dessa tática.
@@ -76,6 +81,7 @@ Resposta: Porque ciúme dificulta mostrar amor, e sem amor pelos irmãos, Jeová
 ```
 
 **6. O que você aprendeu do exemplo de Jonatã? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Como reagir de forma diferente de Saul.
@@ -85,6 +91,7 @@ Resposta: Jonatã reconheceu a vontade de Jeová e apoiou Davi com lealdade, em 
 ```
 
 **7. O que podemos fazer para não deixar Satanás destruir nossa união? (Efésios 4:25-27)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Uma ação prática contra a desunião.
@@ -94,6 +101,7 @@ Resposta: Resolvendo rápido qualquer desentendimento e lembrando que precisamos
 ```
 
 **8. O que podemos fazer quando um irmão ou uma irmã nos magoa?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Como reagir quando somos ofendidos por alguém da congregação.
@@ -107,6 +115,7 @@ Resposta: Lembrando que somos igualmente imperfeitos, e perdoando liberalmente, 
 O que aprendemos nesse trecho: a segunda tática, vinda de fora da congregação, com Isaque e Jesus como exemplos de como reagir.
 
 **9. Qual é outra tática que Satanás usa contra nós?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: A tática que vem de fora da congregação.
@@ -116,6 +125,7 @@ Resposta: A perseguição, que pode desviar nosso tempo e energia do trabalho de
 ```
 
 **10. O que Isaque fez ao enfrentar injustiças?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Um exemplo prático de reação madura à injustiça.
@@ -125,6 +135,7 @@ Resposta: Isaque preferiu se mudar e manter a paz em vez de brigar pelos poços,
 ```
 
 **11. Como Jesus reagiu ao enfrentar desafios?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O padrão de Jesus diante de oposição de vários lados.
@@ -134,6 +145,7 @@ Resposta: Jesus se manteve focado no serviço que Jeová deu a ele e nunca tento
 ```
 
 **12. De acordo com Mateus 5:43, 44, como devemos tratar as pessoas que se opõem a nós ou nos perseguem?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O padrão de Jesus pra tratar opositores.
@@ -143,6 +155,7 @@ Resposta: Tratando com bondade, paciência e respeito até quem se opõe a nós 
 ```
 
 **13. Por que devemos respeitar os governos mesmo quando eles se opõem a nós? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: A base bíblica pra respeitar autoridades, mesmo injustas.
@@ -152,6 +165,7 @@ Resposta: Respeitando as autoridades por obediência a Jeová, mesmo discordando
 ```
 
 **14. Do que devemos nos lembrar sobre as pessoas que hoje se opõem ao povo de Deus?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Uma razão pra ter esperança em relação a opositores de hoje.
@@ -161,6 +175,7 @@ Resposta: Lembrando que um opositor de hoje pode se tornar um irmão fiel amanh�
 ```
 
 **15. Por que não seria realista tentar acabar com as injustiças que existem hoje?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: Por que investir energia em corrigir o sistema não é a solução.
@@ -174,6 +189,7 @@ Resposta: Porque só o Reino de Jeová pode resolver o problema na raiz; nossa e
 O que aprendemos nesse trecho: as duas táticas se resolvem pela mesma raiz: fé fortalecida em Jeová e Jesus.
 
 **16. O que vai nos ajudar a vencer a nossa luta contra espíritos malignos? (Veja também as imagens.)**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: O que realmente garante a vitória nessa luta espiritual.
@@ -183,6 +199,7 @@ Resposta: Fortalecendo nossa fé em Jeová e Jesus, que é o segredo pra vencer 
 ```
 
 **17. O que devemos estar determinados a fazer?**
+@CAMPO Sua resposta
 
 ```
 O que a pergunta quer dizer: A decisão final que o estudo pede.
@@ -194,18 +211,21 @@ Resposta: Estar determinados a não sermos enganados pelas táticas de Satanás,
 @RECAP QUAL É A SUA RESPOSTA?
 
 **Como Satanás tenta destruir a união que temos com nossos irmãos?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Usando ciúme, como aconteceu com Saul contra Davi, e as diferenças de personalidade e cultura entre nós, pra fazer parecer impossível nos darmos bem.
 ```
 
 **Como Satanás tenta nos desanimar para deixarmos de lado nosso trabalho de pregação?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Usando a perseguição e a oposição, esperando que gastemos tempo e energia tentando corrigir injustiças em vez de continuar pregando.
 ```
 
 **Por que você tem certeza de que pode vencer a luta contra as forças espirituais malignas?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Porque a própria Bíblia garante essa vitória a quem resiste com fé em Jeová e Jesus.

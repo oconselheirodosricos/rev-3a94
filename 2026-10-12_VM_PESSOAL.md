@@ -41,8 +41,10 @@ Comentando a imagem: dentro de um carro, uma irmã mais experiente mostra pra um
 @COMENTARIO
 O programa traz duas perguntas, cada uma com campo de resposta próprio: a pergunta específica da semana e a pergunta fixa sobre as joias espirituais.
 @PERGUNTA Jer. 44:18 — Os israelitas disseram que estavam sofrendo porque tinham deixado de “fazer sacrifícios à Rainha do Céu”. Por que eles não podiam dizer isso? (it “Obstinação” § 4)
+@CAMPO Sua resposta
 @RESPOSTA O versículo mostra o raciocínio do povo: "Depois que deixamos de fazer sacrifícios à Rainha do Céu... começou a nos faltar tudo, e fomos eliminados pela espada e pela fome." O Estudo Perspicaz, no verbete "Obstinação" (§ 4), explica por que eles não podiam dizer isso: "Visto que Jeová dá aviso antecipado do seu julgamento contra os obstinados, a execução desse julgamento não pode ser atribuída a outras causas ou a uma fonte diferente." O verbete manda comparar com Jeremias 44:16-23.
 @PERGUNTA Que joias espirituais você encontrou na leitura da Bíblia desta semana?
+@CAMPO Sua resposta
 @RESPOSTA As joias listadas abaixo são a resposta a essa pergunta.
 @APLICAR Como aplicar? A obstinação de Jeremias 44:18 não é um defeito de raciocínio isolado, é o efeito de já ter decidido o que se quer fazer e escolher a explicação que permite continuar fazendo. Nesta semana, ao notar alguém (ou a mim mesmo) invertendo causa e efeito pra justificar uma escolha, pergunte-se: essa conclusão veio primeiro da evidência, ou a evidência foi escolhida pra caber na conclusão que eu já queria?
 @JOIA Jeremias 42:5, 6: "Que Jeová seja testemunha verdadeira e fiel contra nós, se não fizermos exatamente como Jeová, seu Deus, nos instruir... Quer a sua palavra seja boa quer má, obedeceremos à voz de Jeová." A promessa foi feita antes da resposta, e a resposta só veio depois de dez dias (Jeremias 42:7); quando ela veio, eles desobedeceram (Jeremias 43:4). Aprendi que o valor de uma promessa a Jeová não está em quão solene ela soa na hora de fazer, está em resistir depois que a resposta real chega.
@@ -84,10 +86,13 @@ A cena é de casa em casa: falar sobre uma das verdades do apêndice A da brochu
 @COMENTARIO
 Esta é uma consideração, não uma demonstração, e a designação oficial é TESTEMUNHO INFORMAL: o conducente faz um resumo da lição 2 de [*Ame as Pessoas: Faça Discípulos*](https://www.jw.org/finder?wtlocale=T&pub=lmd), "Naturalidade", ponto 3 "Seja observador." ("As expressões faciais e a linguagem corporal de uma pessoa podem dizer muito sobre ela. A pessoa parece estar disposta a falar com você? Se estiver, você pode começar a falar sobre a Bíblia simplesmente perguntando: ‘Você sabia que . . . ?’ Mas, se perceber que a pessoa não está com vontade de falar, não force a conversa."), e mostra a imagem de um homem lendo a Bíblia ou outro livro religioso, provavelmente num transporte público. Depois, o programa faz três perguntas, cada uma com campo de resposta próprio.
 @PERGUNTA Um homem está lendo a Bíblia ou outro livro religioso. Como você poderia começar uma conversa com ele?
+@CAMPO Sua resposta
 @RESPOSTA Comentando o que ele já está fazendo, sem soar intrusivo: reconhecer que ele está lendo algo religioso é a ponte natural, não uma abordagem genérica de pregação.
 @PERGUNTA Que perguntas você faria para descobrir em que verdades bíblicas ele tem interesse?
+@CAMPO Sua resposta
 @RESPOSTA Perguntas abertas sobre o que ele está lendo e por quê, não perguntas fechadas que só aceitam sim/não.
 @PERGUNTA Que verdade da Bíblia você poderia mostrar para ele?
+@CAMPO Sua resposta
 @RESPOSTA Depende do que a conversa revelar sobre o que ele está lendo e por quê.
 @APLICAR Exemplo de campo: se a pessoa disser que está lendo por curiosidade histórica, uma verdade sobre a precisão profética da Bíblia pode interessar; se disser que está buscando conforto, uma verdade sobre a esperança da ressurreição serve melhor. O ponto da lição 2 não é ter uma resposta pronta pra qualquer situação, é ouvir o suficiente pra escolher a resposta certa PARA aquela pessoa.
 @COMPLEMENTAR Um homem lendo em público já fez a parte mais difícil sozinho: abriu espaço pro assunto. A habilidade que falta a muitos publicadores não é saber o que dizer, é reconhecer a abertura quando ela já está na nossa frente.

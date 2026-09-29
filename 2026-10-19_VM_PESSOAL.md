@@ -39,8 +39,10 @@ Comentando a imagem: um irmão idoso, cercado de sinais concretos de limitação
 @COMENTARIO
 O programa traz duas perguntas, cada uma com campo de resposta próprio: a pergunta específica da semana e a pergunta fixa sobre as joias espirituais.
 @PERGUNTA Jer. 46:22 — Em que sentido o som do Egito seria “como o de uma serpente deslizando”? (it “Voz” § 16)
+@CAMPO Sua resposta
 @RESPOSTA O versículo diz: "O som dela é como o de uma serpente deslizando, pois eles vêm contra ela com força, usando machados, como homens que derrubam árvores." O som de serpente é o do Egito, e quem vem com machados são os babilônios. O Estudo Perspicaz, no verbete "Voz" (§ 16), explica que o Egito seria derrotado pelos babilônios, "que viriam em grande número como cortadores de lenha, para abatê-lo", e que o Egito "jazeria no chão, profundamente humilhado, chorando brandamente e gemendo", com a voz "baixa como a duma serpente sibilante em recuo".
 @PERGUNTA Que joias espirituais você encontrou na leitura da Bíblia desta semana?
+@CAMPO Sua resposta
 @RESPOSTA As joias listadas abaixo são a resposta a essa pergunta.
 @APLICAR Como aplicar? O Egito, que parecia poderoso, acaba humilhado, com a voz baixa como a de uma serpente em recuo, quando os babilônios chegam com machados. É um lembrete de que poder aparente não é o mesmo que poder real. Nesta semana, ao avaliar alguma situação que parece grande e ameaçadora, lembre que quem decide o resultado é Jeová.
 @JOIA Jeremias 45:3: "Ai de mim, pois Jeová acrescentou tristeza à minha dor! Estou exausto de tanto gemer e não encontro descanso." Baruque não escondeu o cansaço, e Jeová mostrou que tinha ouvido: citou as próprias palavras dele por meio de Jeremias (Jeremias 45:1-3). Aprendi que reconhecer o cansaço em voz alta diante de Jeová não é falta de fé, é o primeiro passo pra receber ajuda.
@@ -101,14 +103,19 @@ Depois o programa manda **Leia 2 Coríntios 8:2-4** (com a nota de estudo em 2 C
 
 Depois o programa manda **Mostre o VÍDEO *Divida Suas Coisas com Outros***, da série *Torne-se Amigo de Jeová* (endereço oficial [jw.org/open?lank=pub-pk_10_VIDEO](https://www.jw.org/open?lank=pub-pk_10_VIDEO&wtlocale=T), com legenda oficial em português, de onde vem tudo o que segue). O vídeo mostra duas crianças, Pedro e Sofia, ganhando presentes da mãe (um carrinho e um kit de pintura) e brigando por um deles ("Me dá! Ele é meu!" / "Ah, Pedro, deixa eu ver!"). A mãe interrompe: "Tá bom, crianças... parece que vamos ter que aprender a dividir", e pergunta se, quando Jeová criou o paraíso, ele ficou com os animais só pra ele. As crianças respondem que não, que ele “Ele deu todos para a gente. Até os mais bonitinhos.”, e a mãe conclui: "Jeová divide tudo com a gente. Então, o que vocês precisam fazer?" A cena muda pra mais tarde, com as crianças brincando juntas e felizes ("A gente conseguiu!"), uma perguntando à outra se quer ir primeiro, terminando com as duas se revezando alegremente numa atividade (a legenda oficial termina em "Preparar, apontar, já!"). Depois da exibição, o programa pergunta que exemplo Jeová nos dá sobre dividir (abaixo).
 @PERGUNTA Por que seria bom para os cristãos daquela época aplicar os conselhos de Paulo?
+@CAMPO Sua resposta
 @RESPOSTA Porque eles tiveram que deixar para trás casa, trabalho e muitas coisas que tinham, e provavelmente surgiu uma grande necessidade de dividirem suas coisas uns com os outros.
 @PERGUNTA Pensando no que vai acontecer em breve, por que é importante aprender desde já a compartilhar com outros o que temos?
+@CAMPO Sua resposta
 @RESPOSTA Porque o padrão que vamos precisar na grande tribulação (dividir recursos escassos, cuidar de quem perdeu tudo) não nasce do nada na hora da crise, é um hábito que se constrói agora, nas pequenas oportunidades do dia a dia.
 @PERGUNTA O que podemos aprender do exemplo dos macedônios?
+@CAMPO Sua resposta
 @RESPOSTA Que generosidade não depende de ter sobra. Os cristãos da Macedônia estavam na "extrema pobreza" e mesmo assim insistiram no "privilégio" de dar, não deram o que sobrou, deram além do que tinham, porque a alegria e a generosidade vieram antes do cálculo do quanto restava.
 @PERGUNTA O que mais podemos compartilhar com outros, além de coisas materiais?
+@CAMPO Sua resposta
 @RESPOSTA Tempo, atenção, uma palavra de ânimo, uma habilidade prática, companhia numa hora difícil. O princípio de Hebreus 13:16 ("partilhar com outros o que vocês têm") não se limita a bens materiais.
 @PERGUNTA Que exemplo Jeová nos dá sobre dividir as coisas com outros?
+@CAMPO Sua resposta
 @RESPOSTA O exemplo de um Criador generoso que, ao fazer o paraíso, não ficou com nada só pra ele, dividiu até "os mais bonitinhos" dos animais com a humanidade. Se Jeová, dono de tudo, divide dessa forma, imitar esse padrão generoso é natural pra quem quer ser amigo dele, do jeito que a mãe do vídeo ensinou aos filhos.
 @APLICAR Como aplicar? Escolha uma área concreta pra praticar esta semana: um recurso material (emprestar, dar, dividir algo que você tem e outro precisa), ou um recurso não-material (tempo, atenção, uma habilidade). O padrão dos macedônios ensina que o teste de generosidade não é "sobra alguma coisa?", é "estou disposto, mesmo com pouco?".
 @COMPLEMENTAR Repare que Paulo elogia os macedônios por terem feito isso por iniciativa PRÓPRIA, "nos suplicavam insistentemente... pelo privilégio de dar". A generosidade que edifica não é a que se sente cobrada, é a que pede pra participar.

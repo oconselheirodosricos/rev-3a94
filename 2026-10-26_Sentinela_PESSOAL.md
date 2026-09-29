@@ -29,6 +29,7 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 ---
 
 **1. O que Zacarias disse em sua profecia?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Cheio de espírito santo, Zacarias respondeu à pergunta que parentes e vizinhos faziam sobre o recém-nascido João, "O que será que esse menino vai ser?" (Lucas 1:57-66), dizendo que João ajudaria as pessoas a se arrepender e a se preparar pro Messias que logo viria (Amós 3:7; Lucas 1:67-79). Mas ele foi além de descrever o filho: profetizou algo que tem a ver com cada um de nós hoje, sobre três coisas que devemos dar valor: o presente da salvação, o privilégio de servir a Jeová, e a responsabilidade de pregar. A nota "a" do artigo diz: "Assista ao trecho que mostra a profecia de Zacarias relacionada a Lucas 1:67 com o título “O Nome Dele É João”, do vídeo A História e o Ministério de Jesus: Episódio 1."
@@ -45,6 +46,7 @@ Pra Laurinha: Ele falou do Salvador que vinha.
 O que vemos aqui: Zacarias profetiza sobre um "poderoso salvador" ainda antes de Jesus nascer, e o texto explica de que exatamente esse Salvador nos livra.
 
 **2. (a) De acordo com Lucas 1:67-73, o que Deus prometeu ao seu povo? (b) Quem é o “poderoso salvador” mencionado em Lucas 1:69?**
+@CAMPO Sua respostas
 ```
 Resposta: (a) Deus tinha prometido dar ao seu povo um presente maravilhoso: a salvação. (b) Zacarias disse: "[Jeová] fez surgir para nós um poderoso salvador na casa de Davi" (Lucas 1:69). Esse "poderoso salvador" seria o Messias, que os judeus já sabiam que viria da linhagem do rei Davi (Gênesis 22:17, 18; Mateus 22:42). Jeová usou Zacarias pra anunciar isso porque a chegada do Messias estava mais perto do que nunca: dentro de seis meses, Maria daria à luz Jesus, que seria chamado "Filho de Deus" e reinaria no "trono de Davi, seu pai" (Lucas 1:30-35). O "poderoso salvador" surgiu de fato quando Jesus foi batizado, aos 30 anos, e ungido com espírito santo, se tornando o Messias (Mateus 3:16, 17).
 
@@ -56,6 +58,7 @@ Pra Laurinha: Um Salvador: Jesus.
 ```
 
 **3. De que inimigos os judeus precisavam ser salvos?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Zacarias respondeu: "dos nossos inimigos e das mãos de todos os que nos odeiam" (Lucas 1:71). Não eram as autoridades romanas: o inimigo real era Satanás, responsável por escravizar toda a humanidade, inclusive aqueles judeus, ao pecado e à morte (Hebreus 2:14, 15). Além disso, os judeus não conseguiam seguir perfeitamente a Lei mosaica e estavam sob maldição por isso (Romanos 3:20; Gálatas 3:10, 13). Por isso o que Jeová prometeu por meio de Zacarias era tão importante: "salvação por meio do perdão dos pecados deles" (Lucas 1:77).
@@ -68,6 +71,7 @@ Pra Laurinha: Do pecado e da morte.
 ```
 
 **4. De que inimigos precisamos ser salvos hoje?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Assim como os judeus da época de Jesus, hoje também somos escravos do pecado e da morte (Romanos 5:12). Satanás e os demônios tentam nos enganar pra nos afastar de Jeová, e até fazem com que pessoas e organizações "que nos odeiam" fiquem contra a nossa adoração. Precisamos ser salvos desses inimigos.
@@ -80,6 +84,7 @@ Pra Laurinha: Satanás, o pecado e a morte.
 ```
 
 **5. De que maneiras Jesus nos salva do pecado?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Jesus ensinou seus seguidores a adorar Jeová da maneira certa e deu sua vida como resgate, "para que todo aquele que nele exercer fé não seja destruído, mas tenha vida eterna" (João 3:16; Mateus 20:28). Mesmo nos esforçando pra seguir o que Jesus ensinou, ainda somos imperfeitos, então pedimos que Jeová nos perdoe quando pecamos. Com base no resgate, Jeová pode perdoar nossos pecados e aceitar nossa adoração (1 João 2:1, 2).
@@ -92,6 +97,7 @@ Pra Laurinha: Jesus deu a vida por nós.
 ```
 
 **6. O que Jesus vai fazer como Rei no “trono de Davi”? (Veja também a imagem.)**
+@CAMPO Sua resposta
 ```
 Resposta: Desde 1914, Jesus reina no céu no "trono de Davi, seu pai" (Lucas 1:32, 33). Como Rei, junto com os 144 mil e os anjos, ele vai destruir todos os inimigos humanos de Deus no Armagedom. Durante o Reinado de Mil Anos, Jesus vai ressuscitar os mortos e, aos poucos, ajudar os humanos a se tornarem perfeitos (João 5:28; Apocalipse 22:1, 2). No final dos mil anos, o pecado herdado e a morte terão acabado (1 Coríntios 15:26, 55-57), e Satanás, seus demônios e os humanos do lado deles no teste final serão eliminados por completo (Apocalipse 20:7-10). Então os adoradores leais de Jeová vão ter amizade com ele sem pecado, sem morte e sem inimigo nenhum.
 
@@ -107,6 +113,7 @@ Pra Laurinha: Jesus vai acabar com a morte.
 O que aprendemos nesse trecho: por causa do resgate, temos o privilégio de servir a Jeová "destemidamente", e isso vale mesmo pra quem ainda luta contra sentimentos de culpa.
 
 **7. De acordo com Lucas 1:74, 75, que privilégio Jeová dá ao seu povo?**
+@CAMPO Sua resposta
 
 ```
 Resposta: "o privilégio de lhe prestar destemidamente serviço sagrado" (Lucas 1:74, 75). Nosso "serviço sagrado" a Jeová inclui todos os aspectos da adoração verdadeira: pregar, orar, estudar a Bíblia, assistir às reuniões, assembleias e congressos, além de atividades ligadas à adoração, como serviço em Betel e construção e manutenção de Salões do Reino e de Assembleias.
@@ -119,6 +126,7 @@ Pra Laurinha: Servir a Jeová sem medo.
 ```
 
 **8. Do que não precisamos ter medo?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Primeiro, não precisamos mais ter medo da morte: por termos a esperança de viver pra sempre, podemos nos concentrar em agradar a Jeová em vez de aproveitar ao máximo esta vida curta, e continuamos leais mesmo quando ameaçados, porque confiamos que Jesus pode nos trazer de volta à vida (João 6:39, 40). Segundo, não precisamos ter medo de ser rejeitados por Jeová por sermos pecadores: temos confiança de que ele nos ama, nos aprova e vai nos perdoar com base no sacrifício de Jesus (1 João 4:9, 10).
@@ -131,6 +139,7 @@ Pra Laurinha: Da morte e da rejeição.
 ```
 
 **9. Que dificuldade alguns cristãos têm?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Pode ser que sintam que não merecem o amor e a aprovação de Jeová, talvez por causa de algo muito ruim que aconteceu na vida deles, ou porque se sentem muito culpados por pecados que cometeram, mesmo já tendo buscado o perdão de Jeová e a ajuda dos anciãos.
@@ -143,6 +152,7 @@ Pra Laurinha: Achar que Jeová não gosta deles.
 ```
 
 **10-11. O que podemos fazer se estamos sofrendo em sentido emocional e achamos que Jeová não nos ama mais? Ilustre.**
+@CAMPO Sua resposta
 
 ```
 Resposta: Podemos pensar na seguinte ilustração: um homem quebra a perna, o médico coloca o osso no lugar e recomenda exercícios pra recuperar a força aos poucos. Se a pessoa acha que nunca mais vai recuperar totalmente a mobilidade, ela precisa confiar no médico e, com paciência, continuar seguindo a recomendação dele; com o tempo, a perna pode se recuperar, permitindo que ela ande ou até corra de novo. Da mesma forma, mesmo sofrendo muito em sentido emocional por causa de um pecado, devemos confiar em Jeová, lembrando que, por sua bondade imerecida e misericórdia, ele deu a vida do seu Filho pra nos curar em sentido espiritual (João 1:16, 17; Romanos 3:23, 24; 1 João 3:19, 20). Devemos seguir de perto a "recomendação médica": oração, estudo e atividades espirituais (Salmo 1:2; 1 Tessalonicenses 5:17; Hebreus 10:25). Pode levar tempo pra curar um coração que duvida do amor de Jeová, assim como leva tempo pra curar uma perna quebrada, mas nunca devemos desistir de Jeová, nem de nós mesmos, e devemos agradecer a ele todo dia pela força de continuar servindo fielmente.
@@ -159,6 +169,7 @@ Pra Laurinha: Pedir ajuda e ter paciência.
 O que aprendemos nesse trecho: assim como João apontou pra Jesus, hoje cabe a nós continuar espalhando a mesma mensagem, e o tempo que resta torna isso mais urgente.
 
 **12. Como João Batista preparou os caminhos de Jeová? (Lucas 1:76-79)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Zacarias disse ao próprio filho recém-nascido: "[Você] irá na frente de Jeová para preparar os caminhos dele." Quando cresceu, João se tornou um pregador zeloso, incentivando os judeus a se arrependerem, se batizarem e estarem prontos pra vinda do Messias. Depois de batizar Jesus, João o identificou como representante de Jeová, dizendo: "Vejam o Cordeiro de Deus, que tira o pecado do mundo!" E incentivou seus próprios discípulos a seguir Jesus, o Messias (João 1:29, 34-36, 40, 41).
@@ -171,6 +182,7 @@ Pra Laurinha: João apontou as pessoas pra Jesus.
 ```
 
 **13. Em que sentido a vinda do Messias seria “um amanhecer” para o povo de Deus?**
+@CAMPO Sua resposta
 ```
 Resposta: Segundo Zacarias, a vinda do Messias seria "um amanhecer", o início de uma nova era que mudaria a vida de todas as pessoas. A notícia sobre esse presente da salvação precisava ser espalhada pro maior número possível de pessoas, e João sozinho não teria condições de fazer isso.
 
@@ -182,6 +194,7 @@ Pra Laurinha: Um dia novo ia começar.
 ```
 
 **14. Que trabalho importante Jesus e seus discípulos fizeram? (Isaías 61:1, 2)**
+@CAMPO Sua resposta
 
 ```
 Resposta: Jesus se esforçou bastante pra divulgar a mensagem, cumprindo as palavras de Zacarias ao trazer "luz aos sentados na escuridão e na sombra da morte". Ele sentia enorme compaixão pelas pessoas que sofriam e eram maltratadas, e compartilhou a mensagem consoladora do "ano de boa vontade de Jeová" (Isaías 61:1, 2; Lucas 4:16-21), proclamando: "O Reino dos céus está próximo." Mas, sabendo que seria necessário muito mais gente pra pregar, ele treinou seus discípulos pra transmitir essa mesma mensagem (Mateus 4:16, 17; 10:7; 28:19, 20).
@@ -194,6 +207,7 @@ Pra Laurinha: Pregaram e ensinaram outros a pregar.
 ```
 
 **15. Por que hoje a pregação é mais importante do que nunca?**
+@CAMPO Sua resposta
 ```
 Resposta: Em breve, a humanidade vai enfrentar uma "grande tribulação, como nunca ocorreu desde o princípio do mundo" (Mateus 24:21). Nesse período, talvez mais pessoas aceitem as boas novas e comecem a servir a Jeová porque vão se lembrar da mensagem que já pregamos. Depois, Jesus vai liderar os 144 mil e os anjos pra lutar contra todos os inimigos humanos de Deus e salvar os que adoram a Jeová, pra que vivam no novo mundo (Mateus 25:34; Apocalipse 16:16; 19:19).
 
@@ -205,6 +219,7 @@ Pra Laurinha: O fim está chegando.
 ```
 
 **16. O que você está decidido a fazer? (Veja também as imagens.)**
+@CAMPO Sua resposta
 
 ```
 Resposta: As palavras de Zacarias em Lucas 1:68-79 lembram de três coisas: o maravilhoso presente da salvação, o privilégio de servir a Jeová sem medo, e a responsabilidade de pregar as boas novas. Podemos parar e nos perguntar se já aceitamos o presente de Jeová por ter fé no sacrifício de Jesus e dedicar a vida a ele, se consideramos precioso o privilégio de servi-lo, e então nos dedicar de coração à responsabilidade de pregar o "ano de boa vontade de Jeová", convidando outros a se juntar a nós para "prestar destemidamente serviço sagrado com lealdade e justiça, diante dele, todos os nossos dias" (Lucas 1:74, 75). A nota "b" do artigo diz: "DESCRIÇÃO DA IMAGEM: Na primeira imagem, duas irmãs pregam de casa em casa. Na segunda imagem, um irmão dá testemunho a um colega de trabalho durante um intervalo. Na terceira imagem, uma irmã faz uma apresentação na escola mostrando evidências de que existe um Criador, enquanto seu professor e colegas de classe escutam com atenção."
@@ -219,18 +234,21 @@ Pra Laurinha: Vou pregar com alegria.
 @RECAP DE ACORDO COM A PROFECIA EM LUCAS 1:68-79, . . .
 
 **que presente maravilhoso Jeová nos deu?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Jeová prometeu, por meio da profecia de Zacarias, "um poderoso salvador na casa de Davi" (Lucas 1:69), que se cumpriu quando Jesus foi batizado e ungido como Messias (Mateus 3:16, 17), pra nos salvar do pecado, de Satanás e por fim da morte.
 ```
 
 **que privilégio temos por causa do sacrifício de Jesus?**
+@CAMPO Sua resposta
 
 ```
 Resposta: O privilégio de prestar destemidamente serviço sagrado a Jeová (Lucas 1:74, 75), sem medo da morte nem medo de rejeição por sermos pecadores, porque temos confiança no perdão baseado no sacrifício de Jesus (1 João 4:9, 10).
 ```
 
 **qual é a nossa responsabilidade?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Continuar espalhando a mensagem de salvação, do jeito que João Batista fez, porque em breve vem a grande tribulação e pregar agora pode ajudar pessoas a se lembrarem e aceitarem as boas novas depois (Mateus 24:14, 21).

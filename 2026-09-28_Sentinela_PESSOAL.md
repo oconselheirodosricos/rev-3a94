@@ -30,6 +30,7 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 ---
 
 **1. Como você se sente quando vê um estudante da Bíblia fazendo progresso?**
+@CAMPO Sua resposta
 
 ```
 Resposta: No parágrafo 1, a pergunta reconhece um sentimento real de quem ensina: alegria genuína ao ver alguém ir pela primeira vez a uma reunião, comentar, falar da própria fé pra outros e, com o tempo, decidir se batizar. Mas o parágrafo já corrige o instinto de ficar com o crédito: "é claro que Jeová merece todo crédito e louvor quando um estudante da Bíblia faz progresso, já que é ele que ajuda alguém a crescer espiritualmente" (frase do próprio artigo, com base em 1 Coríntios 3:5-9; 3 João 3, 4).
@@ -42,6 +43,7 @@ Pra Laurinha: Fico feliz quando alguém aprende.
 ```
 
 **2. O que Jeová deseja para os estudantes da Bíblia? (1 Timóteo 2:3, 4)**
+@CAMPO Sua resposta
 
 ```
 Resposta: O parágrafo 2 responde com a própria citação: Jeová “deseja que todo tipo de pessoas sejam salvas e venham a ter um conhecimento exato da verdade” (1 Timóteo 2:3, 4). O ponto central do parágrafo é que “conhecimento exato” não se refere apenas a um conjunto de fatos: no idioma original, a palavra se refere a um conhecimento "que causa um efeito profundo em uma pessoa" (frase de um estudioso da Bíblia, citada pelo próprio artigo). Quando isso acontece de verdade, o estudante se sente motivado a mudar de vida, e essa mudança abre caminho pra esperança de “vida eterna” (João 17:3).
@@ -53,6 +55,7 @@ Pra Laurinha: Jeová quer que todos conheçam ele.
 ```
 
 **3. O que vamos considerar neste estudo?**
+@CAMPO Sua resposta
 
 ```
 Resposta: O parágrafo 3 entrega o roteiro do estudo em três perguntas: por que os estudantes da Bíblia precisam conhecer bem a Jeová, como podemos ajudá-los a conhecer a personalidade dele, e como podemos ensiná-los a usar o que já aprenderam sobre Jeová.
@@ -67,6 +70,7 @@ Pra Laurinha: Hoje vamos aprender sobre Jeová.
 O que vemos aqui: conhecer fatos sobre Jeová não é a mesma coisa que conhecê-lo de verdade, e é esse conhecimento profundo, não apenas um conjunto de fatos, que leva um estudante da Bíblia a amar e obedecer a Jeová de coração.
 
 **4. De acordo com Marcos 12:30, qual é o nosso principal objetivo ao dirigir um estudo bíblico?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Ajudar o estudante a amar a Jeová de todo o coração, alma, mente e força, porque esse é o maior mandamento (Marcos 12:30). O parágrafo 4 explica o caminho até ali: pra amar a Jeová, o estudante primeiro precisa conhecê-lo. E o alvo não é o estudante se dedicar ao instrutor, a um conjunto de ensinos ou a uma organização, mas a Jeová.
@@ -79,6 +83,7 @@ Pra Laurinha: Amar Jeová é o mais importante.
 ```
 
 **5. O que o amor a Jeová vai motivar seu estudante da Bíblia a fazer?**
+@CAMPO Sua resposta
 
 ```
 Resposta: A obedecer a ele e continuar leal, do mesmo jeito que Jesus obedecia. O parágrafo 5 conecta amor e obediência: “para que o mundo saiba que eu amo o Pai, faço assim como o Pai me ordenou” (João 14:31), e conclui que “o amor a Deus significa o seguinte: que obedeçamos aos seus mandamentos” (1 João 5:3).
@@ -91,6 +96,7 @@ Pra Laurinha: Amar Jeová é obedecer ele.
 ```
 
 **6. À medida que o seu estudante conhecer melhor a Jeová, o que ele vai conseguir fazer? Dê um exemplo.**
+@CAMPO Sua resposta
 
 ```
 Resposta: Vai conseguir tomar decisões sábias em qualquer situação, mesmo sem ter uma regra decorada pra cada caso. O parágrafo 6 usa o exemplo do piloto de avião: não basta estudar regras de aviação, é preciso horas de prática pra saber decidir em pleno voo. Do mesmo jeito, o estudante conhece Jeová não só pelo estudo, mas por ver, na prática, os resultados de decisões baseadas em princípios bíblicos.
@@ -103,6 +109,7 @@ Pra Laurinha: Conhecer Jeová ajuda a decidir bem.
 ```
 
 **7. O que ajudou José a tomar uma boa decisão?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Conhecer bem a Jeová, o suficiente pra reconhecer o pecado antes de cometê-lo. O parágrafo 7 mostra José recusando a esposa de Potifar porque, desde criança, já tinha aprendido as histórias de Adão e Eva e de Abraão e Sara, e com base nelas entendia como Jeová vê o casamento e as relações sexuais. Por isso ele respondeu: “como eu poderia cometer essa grande maldade e realmente pecar contra Deus?” (Gênesis 39:7-9).
@@ -119,6 +126,7 @@ Pra Laurinha: José conhecia Jeová e disse não.
 O que aprendemos nesse trecho: não basta o estudante saber O QUE Jeová fez; ele precisa entender POR QUE Jeová fez, e é aí que perguntas bem escolhidas ensinam mais do que respostas prontas.
 
 **8. Como você pode usar o livro Seja Feliz para Sempre! para ajudar um estudante da Bíblia a conhecer a Jeová?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Usando as perguntas que o próprio livro traz, do mesmo jeito que Jeová usou perguntas com Jó. O parágrafo 8 lembra que Jeová ajudou Jó a aprender mais sobre ele fazendo perguntas, mais de 50 delas (Jó 38:1 a 41:34). O livro *Seja Feliz para Sempre!* traz várias perguntas que ajudam o estudante a aprender cada vez mais sobre a personalidade de Jeová, não só sobre os fatos que ele fez.
@@ -134,6 +142,7 @@ Pra Laurinha: Perguntas ajudam a conhecer Jeová.
 O livro *Seja Feliz para Sempre!* tem muitas perguntas que ajudam os estudantes a conhecer melhor a Jeová. Alguns exemplos citados pelo artigo: “O que Jeová sente por aqueles que pregam as boas novas?” (lição 21); “Pensando em tudo que você já aprendeu sobre Jeová e Jesus, por que você pode ter certeza de que o julgamento deles [no Armagedom] vai ser justo?” (lição 33); “Como Jeová se sente quando você faz a coisa certa e obedece a ele? Por quê?” (lição 34); “Como você acha que Jeová se sentiria se nós nos casássemos com alguém que não ama a ele?” (lição 42); “Até que ponto vai o perdão de Jeová?” (lição 56); “Como o modo de Jeová lidar com pecadores mostra que ele é razoável, misericordioso e amoroso?” (lição 57).
 
 **9-10. (a) O que vai ajudar o estudante a tirar mais proveito da sua leitura da Bíblia? (Tiago 5:11) (b) Dê um exemplo de como um relato da Bíblia pode nos ensinar o que agrada e o que desagrada a Jeová.**
+@CAMPO Suas respostas
 
 ```
 Resposta: (a) Se perguntar, a cada relato lido, "Por que Jeová incluiu esse relato em sua Palavra? Que qualidades de Jeová eu consigo aprender?" (pergunta sugerida pelo próprio artigo). O parágrafo 9 mostra Tiago fazendo exatamente isso com a história de Jó: ele destacou não só a perseverança de Jó, mas também qualidades de Jeová, como a compaixão e a misericórdia (Tiago 5:11). (b) O parágrafo 10 dá o exemplo de Daniel na cova dos leões: o estudante pode se perguntar "Por que Jeová salvou Daniel? De acordo com esse relato, o que deixa Jeová feliz?" (Daniel 6:10, 22), e também "O que aconteceu com os homens que acusaram Daniel? Com base nessa história, o que desagrada a Jeová?" (Daniel 6:4, 5, 24). A nota "a" do artigo diz: "Na lição 5 do livro Seja Feliz para Sempre!, no quadro "Tente o Seguinte", o estudante é incentivado a ter este alvo: "Começar a ler a Bíblia todos os dias usando o quadro ‘Comece sua leitura da Bíblia’."".
@@ -146,6 +155,7 @@ Pra Laurinha: Toda história ensina sobre Jeová.
 ```
 
 **11. Como podemos ajudar nosso estudante a ver que o estudo da Bíblia é um presente de Jeová?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Deixando claro, sempre, que quem merece o louvor pelo que o estudante está aprendendo é Jeová, “seu Grandioso Instrutor” (Isaías 30:20), mesmo quando o próprio estudante elogia o instrutor humano por ensinar bem. O parágrafo 11 diz que isso não está errado, mas o instrutor precisa deixar sempre claro que é Jeová que merece todo o louvor.
@@ -162,6 +172,7 @@ Pra Laurinha: Jeová é quem ensina de verdade.
 O que aprendemos nesse trecho: conhecimento que não vira decisão prática fica pela metade, e o artigo mostra três situações reais, um relato difícil de entender, uma dificuldade na congregação, uma decisão importante, em que o estudante precisa aprender a usar o que já sabe sobre Jeová.
 
 **12-13. O que você pode ensinar seu estudante a fazer quando ele acha difícil entender um relato da Bíblia? (Veja também a imagem.)**
+@CAMPO Sua resposta
 
 ```
 Resposta: A pensar no que ele já aprendeu sobre Jeová antes de julgar o relato. O parágrafo 12 traz um exemplo: um estudante lendo sobre Jeová destruindo algumas pessoas no passado pode se perguntar por que ele deixou outras viverem. O parágrafo 13 orienta incentivar o estudante a lembrar: qual é o ponto de vista de Jeová sobre a vida (2 Pedro 3:9)? Até que ponto ele foi pra nos salvar, apesar de sermos pecadores (Efésios 2:4, 5)? Será que Jeová pune pessoas justas, ou deixa de punir quem merece punição (Êxodo 34:6, 7)? Às vezes a Bíblia não dá todos os detalhes, mas a conclusão do parágrafo é firme: "não precisamos desses detalhes. Nós conhecemos nosso Deus e temos certeza de que ele sempre faz o que é certo!" (frase do próprio artigo).
@@ -174,6 +185,7 @@ Pra Laurinha: Eu confio em Jeová sempre.
 ```
 
 **14. Como você pode ajudar um estudante que está tendo dificuldade para se dar bem com alguém na congregação?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Incentivando o estudante a pensar em como Jeová vê os irmãos dele, e não só no que a pessoa fez de errado. O parágrafo 14 sugere perguntas concretas: que sacrifício Jeová fez pra mostrar amor pelos irmãos (João 3:16)? Que importância ele dá pra união entre os servos dele (Salmo 133:1)? O que ele sente quando fazemos o melhor pra manter a paz na congregação (2 Coríntios 13:11)? O alvo é ajudar o estudante a ver que Jeová fica feliz quando nos concentramos no que os irmãos têm de bom, não nas falhas deles.
@@ -185,6 +197,7 @@ Pra Laurinha: Jeová ama cada irmão.
 ```
 
 **15-16. (a) Como um estudante da Bíblia pode imitar Jesus ao tomar uma decisão importante? (João 8:29) (b) Como Marianne ajudou sua estudante a tomar uma boa decisão? (Veja também a imagem.)**
+@CAMPO Suas respostas
 
 ```
 Resposta: (a) Se perguntando, com base no que já pesquisou e aprendeu, que decisão agradaria a Jeová, do jeito que Jesus vivia: “E Aquele que me enviou está comigo; ele não me deixou só, porque faço sempre o que lhe agrada.” (João 8:29). (b) O parágrafo 16 conta o caso de uma estudante no Chile, pressionada pela família a aceitar um emprego bom, mas que faria ela perder algumas reuniões. A instrutora, Marianne, não disse o que fazer: incentivou a estudante a meditar em como Jeová se sentiria com a decisão, feliz ou triste, e a orar prestando atenção na resposta dele. A estudante recusou o emprego e logo achou outro que não atrapalhava as reuniões.
@@ -201,6 +214,7 @@ Pra Laurinha: Pergunto o que Jeová gostaria.
 O que aprendemos nesse trecho: o alvo do estudo bíblico não é acumular fatos, é conhecer Jeová de um jeito que muda a vida agora e garante um futuro com ele.
 
 **17. O que é mais importante que os estudantes da Bíblia aprendam?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Que conheçam bem a Jeová, mais do que qualquer fato isolado. O parágrafo 17 lista o que os estudantes aprendem num estudo bíblico normal: doutrinas básicas, como a verdade sobre a morte, o resgate e o Reino de Deus, além de fatos sobre a organização, as reuniões, os anciãos e o Corpo Governante. Mas a conclusão é clara: “não basta que os estudantes aprendam fatos. O mais importante é que eles conheçam bem a Jeová.”
@@ -212,6 +226,7 @@ Pra Laurinha: Conhecer Jeová é o mais importante.
 ```
 
 **18. Que bênçãos aqueles que conhecem a Jeová recebem?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Felicidade genuína já agora e vida eterna no futuro. O parágrafo 18 chama de "imenso privilégio" ajudar outros a aprender sobre Jeová, e diz que os que o conhecem e o adoram recebem muitas bênçãos: mesmo agora, "eles são felizes de verdade" (Salmo 25:12-15), e no futuro todos os que têm “conhecimento daquele que é verdadeiro” vão ganhar vida eterna (1 João 5:20). E vai além: quem se esforça pra conhecer e amar a Jeová é “conhecido por ele” (1 Coríntios 8:3), o Deus Todo-Poderoso prestando atenção em cada um como amigo.
@@ -225,18 +240,21 @@ Pra Laurinha: Jeová me conhece como amigo.
 @RECAP COMO RESPONDERIA?
 
 **Por que um estudante da Bíblia precisa conhecer bem a Jeová?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Porque só conhecimento profundo, não apenas um conjunto de fatos, causa o efeito que muda a vida da pessoa (1 Timóteo 2:3, 4) e abre caminho pra ela amar a Jeová de todo o coração, alma, mente e força, o maior mandamento (Marcos 12:30). É esse conhecimento que motivou José a recusar o pecado com a esposa de Potifar (Gênesis 39:7-9) e que, no fim, é a própria definição bíblica de vida eterna: “conheçam a ti, o único Deus verdadeiro” (João 17:3).
 ```
 
 **Como podemos ajudar um estudante a conhecer a personalidade de Jeová?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Usando perguntas, do jeito que o próprio Jeová usou com Jó (Jó 38:1 a 41:34), como as que o livro *Seja Feliz para Sempre!* já traz prontas. Cada relato bíblico lido pode virar as perguntas "por que Jeová incluiu isso em sua Palavra?" e "que qualidades dele eu consigo aprender?" (Tiago 5:11), do jeito que o exemplo de Daniel na cova dos leões revela o que agrada e o que desagrada a Jeová (Daniel 6:10, 22).
 ```
 
 **Como podemos ajudar um estudante a usar o que já aprendeu sobre Jeová?**
+@CAMPO Sua resposta
 
 ```
 Resposta: Incentivando o estudante a recorrer ao que já sabe sobre o caráter de Jeová diante de um relato difícil (2 Pedro 3:9; Êxodo 34:6, 7), de uma dificuldade com um irmão na congregação (João 3:16; Salmo 133:1) ou de uma decisão importante da vida, do jeito que Marianne ajudou sua estudante a meditar em como Jeová se sentiria antes de decidir (João 8:29).
