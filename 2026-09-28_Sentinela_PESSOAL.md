@@ -81,7 +81,7 @@ Pra Laurinha: Amar Jeová é o mais importante.
 **5. O que o amor a Jeová vai motivar seu estudante da Bíblia a fazer?**
 
 ```
-Resposta: A obedecer a ele e continuar leal, do mesmo jeito que Jesus obedecia. O parágrafo 5 conecta amor e obediência: “Para que o mundo saiba que eu amo o Pai, faço assim como o Pai me ordenou” (João 14:31), e conclui que “o amor a Deus significa o seguinte: que obedeçamos aos seus mandamentos” (1 João 5:3).
+Resposta: A obedecer a ele e continuar leal, do mesmo jeito que Jesus obedecia. O parágrafo 5 conecta amor e obediência: “para que o mundo saiba que eu amo o Pai, faço assim como o Pai me ordenou” (João 14:31), e conclui que “o amor a Deus significa o seguinte: que obedeçamos aos seus mandamentos” (1 João 5:3).
 
 Complementar 1: Repare que Jesus não separa amor de obediência como duas coisas distintas que às vezes coincidem; ele apresenta a obediência como a PROVA visível do amor invisível: “para que o mundo saiba”. Isso dá ao instrutor um jeito prático de avaliar o progresso de um estudante: não perguntar só "você ama a Jeová?", mas observar o que a vida da pessoa está provando sobre essa resposta.
 
@@ -105,7 +105,7 @@ Pra Laurinha: Conhecer Jeová ajuda a decidir bem.
 **7. O que ajudou José a tomar uma boa decisão?**
 
 ```
-Resposta: Conhecer bem a Jeová, o suficiente pra reconhecer o pecado antes de cometê-lo. O parágrafo 7 mostra José recusando a esposa de Potifar porque, desde criança, já tinha aprendido as histórias de Adão e Eva e de Abraão e Sara, e com base nelas entendia como Jeová vê o casamento e as relações sexuais. Por isso ele respondeu: “Como eu poderia cometer essa grande maldade e realmente pecar contra Deus?” (Gênesis 39:7-9).
+Resposta: Conhecer bem a Jeová, o suficiente pra reconhecer o pecado antes de cometê-lo. O parágrafo 7 mostra José recusando a esposa de Potifar porque, desde criança, já tinha aprendido as histórias de Adão e Eva e de Abraão e Sara, e com base nelas entendia como Jeová vê o casamento e as relações sexuais. Por isso ele respondeu: “como eu poderia cometer essa grande maldade e realmente pecar contra Deus?” (Gênesis 39:7-9).
 
 Complementar 1: Repare que José não teve tempo, na hora da tentação, de consultar ninguém nem de procurar um texto. A decisão certa saiu na hora exata porque o conhecimento já estava internalizado havia anos, plantado desde a infância. Isso é um alerta contra deixar o estudo bíblico de crianças pra “quando forem mais velhas”: a hora da prova raramente avisa antes.
 
@@ -187,7 +187,7 @@ Pra Laurinha: Jeová ama cada irmão.
 **15-16. (a) Como um estudante da Bíblia pode imitar Jesus ao tomar uma decisão importante? (João 8:29) (b) Como Marianne ajudou sua estudante a tomar uma boa decisão? (Veja também a imagem.)**
 
 ```
-Resposta: (a) Se perguntando, com base no que já pesquisou e aprendeu, que decisão agradaria a Jeová, do jeito que Jesus vivia: “aquele que me enviou está comigo. Ele não me deixou só, porque faço sempre o que lhe agrada.” (João 8:29). (b) O parágrafo 16 conta o caso de uma estudante no Chile, pressionada pela família a aceitar um emprego bom, mas que faria ela perder reuniões. A instrutora, Marianne, não disse o que fazer: incentivou a estudante a meditar em como Jeová se sentiria com a decisão, feliz ou triste, e a orar prestando atenção na resposta dele. A estudante recusou o emprego e logo achou outro que não atrapalhava as reuniões.
+Resposta: (a) Se perguntando, com base no que já pesquisou e aprendeu, que decisão agradaria a Jeová, do jeito que Jesus vivia: “Aquele que me enviou está comigo; ele não me deixou só, porque faço sempre o que lhe agrada.” (João 8:29). (b) O parágrafo 16 conta o caso de uma estudante no Chile, pressionada pela família a aceitar um emprego bom, mas que faria ela perder reuniões. A instrutora, Marianne, não disse o que fazer: incentivou a estudante a meditar em como Jeová se sentiria com a decisão, feliz ou triste, e a orar prestando atenção na resposta dele. A estudante recusou o emprego e logo achou outro que não atrapalhava as reuniões.
 
 Complementar 1: O detalhe mais importante do exemplo de Marianne é o que ela NÃO fez: não decidiu pela estudante. O método de Jesus em João 8:29 também não é uma lista externa de regras pra cada situação; é uma pergunta interna sobre o que agrada a Jeová (com base em João 8:29, “faço sempre o que lhe agrada”), que a própria pessoa aplica. Instrutor que sempre decide pelo estudante está treinando dependência; instrutor que ensina o método está treinando independência espiritual.
 Complementar 2: Repare no resultado duplo mencionado no parágrafo: a estudante não só tomou a decisão certa, como isso “acabou fortalecendo a amizade da estudante com Jeová”. Ou seja, o benefício não foi só a decisão em si (evitar perder reuniões); foi o próprio ato de consultar Jeová em oração e agir pela resposta que aprofundou o relacionamento dela com ele, um resultado que nenhuma lista de prós e contras teria produzido sozinha.

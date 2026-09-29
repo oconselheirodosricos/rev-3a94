@@ -73,7 +73,7 @@ Resposta: Ajudar o estudante a amar a Jeová de todo o coração, alma, mente e 
 
 ```
 O que a pergunta quer dizer: O que muda na prática quando o amor a Jeová é genuíno.
-O que o texto nos mostra: Vai motivá-lo a obedecer a ele e continuar leal, do mesmo jeito que Jesus obedecia: “Para que o mundo saiba que eu amo o Pai, faço assim como o Pai me ordenou” (João 14:31), porque “o amor a Deus significa o seguinte: que obedeçamos aos seus mandamentos” (1 João 5:3).
+O que o texto nos mostra: Vai motivá-lo a obedecer a ele e continuar leal, do mesmo jeito que Jesus obedecia: “para que o mundo saiba que eu amo o Pai, faço assim como o Pai me ordenou” (João 14:31), porque “o amor a Deus significa o seguinte: que obedeçamos aos seus mandamentos” (1 João 5:3).
 Como aplicar na nossa vida: 1 João 5:3 termina dizendo que os mandamentos de Jeová “não são pesados”. A obediência que nasce de amor não pesa como regra imposta de fora; é a mesma coisa que o coração já quer fazer.
 Resposta: A obedecer a Jeová e continuar leal a ele, porque amor a Deus significa obedecer aos mandamentos dele (João 14:31; 1 João 5:3).
 ```
@@ -91,7 +91,7 @@ Resposta: Vai conseguir tomar boas decisões em qualquer situação, porque apre
 
 ```
 O que a pergunta quer dizer: O que estava por trás da coragem de José diante da esposa de Potifar.
-O que o texto nos mostra: Conhecer bem a Jeová. Desde criança, José tinha aprendido as histórias de Adão e Eva e de Abraão e Sara, e com base nelas entendia como Jeová via o casamento e as relações sexuais. Por isso respondeu: “Como eu poderia cometer essa grande maldade e realmente pecar contra Deus?” (Gênesis 39:7-9).
+O que o texto nos mostra: Conhecer bem a Jeová. Desde criança, José tinha aprendido as histórias de Adão e Eva e de Abraão e Sara, e com base nelas entendia como Jeová via o casamento e as relações sexuais. Por isso respondeu: “como eu poderia cometer essa grande maldade e realmente pecar contra Deus?” (Gênesis 39:7-9).
 Como aplicar na nossa vida: A decisão certa saiu na hora exata porque o conhecimento já estava internalizado desde a infância. Isso é um alerta contra deixar o estudo bíblico de crianças pra depois: a hora da prova raramente avisa antes.
 Resposta: Conhecer bem a Jeová desde criança, o suficiente pra reconhecer o pecado como uma ofensa direta contra Deus, não só contra uma regra (Gênesis 39:7-9).
 ```

@@ -32,7 +32,7 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 
 ```
 O que a pergunta quer dizer: O que Zacarias declarou, cheio de espírito santo, sobre o próprio filho recém-nascido.
-O que o texto nos mostra: Zacarias respondeu à pergunta que parentes e vizinhos faziam, "o que será que esse menino vai ser?" (Lucas 1:57-66), dizendo que João ajudaria as pessoas a se preparar pro Messias (Lucas 1:67-79). Mas foi além: profetizou sobre três coisas que devemos dar valor: o presente da salvação, o privilégio de servir a Jeová, e a responsabilidade de pregar. A nota "a" do artigo diz: "Assista ao trecho que mostra a profecia de Zacarias relacionada a Lucas 1:67 com o título “O Nome Dele É João”, do vídeo A História e o Ministério de Jesus: Episódio 1."
+O que o texto nos mostra: Zacarias respondeu à pergunta que parentes e vizinhos faziam, "O que será que esse menino vai ser?" (Lucas 1:57-66), dizendo que João ajudaria as pessoas a se preparar pro Messias (Lucas 1:67-79). Mas foi além: profetizou sobre três coisas que devemos dar valor: o presente da salvação, o privilégio de servir a Jeová, e a responsabilidade de pregar. A nota "a" do artigo diz: "Assista ao trecho que mostra a profecia de Zacarias relacionada a Lucas 1:67 com o título “O Nome Dele É João”, do vídeo A História e o Ministério de Jesus: Episódio 1."
 Como aplicar na nossa vida: Jeová usa momentos familiares comuns pra revelar verdades enormes. Você já percebeu Jeová agindo em algo do seu dia a dia que parecia só rotina?
 Resposta: Além de dizer o que João faria, Zacarias profetizou sobre três coisas que valem pra todos nós: o presente da salvação, o privilégio de servir a Jeová, e a responsabilidade de pregar.
 ```
@@ -92,7 +92,7 @@ O que aprendemos nesse trecho: por causa do resgate, temos o privilégio de serv
 
 ```
 O que a pergunta quer dizer: O que ganhamos, na prática, por causa do sacrifício de Jesus.
-O que o texto nos mostra: "O privilégio de lhe prestar destemidamente serviço sagrado" (Lucas 1:74, 75). Isso inclui pregar, orar, estudar a Bíblia, assistir a reuniões, assembleias e congressos, e atividades ligadas à adoração como serviço em Betel e manutenção de Salões do Reino.
+O que o texto nos mostra: "o privilégio de lhe prestar destemidamente serviço sagrado" (Lucas 1:74, 75). Isso inclui pregar, orar, estudar a Bíblia, assistir a reuniões, assembleias e congressos, e atividades ligadas à adoração como serviço em Betel e manutenção de Salões do Reino.
 Como aplicar na nossa vida: "Serviço sagrado" é bem mais amplo do que só pregar. Que parte da sua rotina de adoração você talvez não enxergue como "sagrada" o suficiente?
 Resposta: Temos o privilégio de prestar serviço sagrado a Jeová em todos os aspectos da adoração verdadeira, sem medo.
 ```

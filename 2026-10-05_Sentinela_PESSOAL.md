@@ -226,7 +226,7 @@ Pra Laurinha: Jeová já me ajudou antes.
 ```
 Resposta: Jesus garante que, enquanto continuarmos amando a ele e ao Pai, ninguém “pode arrancá-las da mão do Pai” (João 10:29). É essa mesma confiança que nos ajuda a resistir às táticas de Satanás e continuar fiéis até que ele e seus demônios sejam destruídos para sempre (Tiago 4:7; Apocalipse 20:1-3, 10).
 
-Complementar 1: “Ninguém pode arrancá-las da mão do Pai” (João 10:29) é imagem de segurança ativa, não passiva: não é "ninguém vai encontrar você escondido", é "ninguém vai conseguir te tirar de onde você está sendo segurado".
+Complementar 1: “ninguém pode arrancá-las da mão do Pai” (João 10:29) é imagem de segurança ativa, não passiva: não é "ninguém vai encontrar você escondido", é "ninguém vai conseguir te tirar de onde você está sendo segurado".
 
 Complementar 2: Repare que a garantia tem uma condição embutida: "continuam amando a ele e a seu Pai". Não é proteção automática independente da nossa escolha; é proteção garantida enquanto a amizade continuar ativa dos dois lados.
 

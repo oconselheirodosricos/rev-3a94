@@ -114,21 +114,26 @@ Continua o estudo do livro [*Ande Corajosamente com Deus*](https://www.jw.org/fi
 @HISTORIA Moisés — “Apresente-se a Faraó”
 @HBLOCO Para considerar
 @HITEM De que maneiras Moisés mostrou coragem nessa época de sua vida?
+@CAMPO Sua resposta
 Resposta: Moisés era um novo homem. Com cerca de 80 anos, tinha passado os últimos 40 como pastor pro rebanho do sogro. Jeová o chamou de dentro de um espinheiro em chamas, mandando que voltasse ao Egito pra libertar o povo, e revelou um aspecto do significado do seu próprio nome: "Eu Me Tornarei O Que Eu Decidir Me Tornar". Moisés se sentia inseguro, mas Jeová deu a ele a capacidade de realizar milagres e um porta-voz, o irmão Arão. De volta ao Egito, vieram as pragas, uma a uma, cada uma humilhando um aspecto da religião egípcia, até Faraó finalmente ceder na décima praga e libertar Israel: mas mudou de ideia e foi atrás deles com o exército. Às margens do Mar Vermelho, Jeová abriu o mar em solo seco; Israel atravessou, e quando os egípcios foram atrás, Jeová fechou as águas, destruindo o exército mais poderoso do mundo. Moisés liderou o povo pelos 40 anos seguintes, até morrer aos 120 anos.
 @HIMG  | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_1_lg.jpg | Moisés e Arão diante de Faraó e de membros da corte egípcia. |
 Comentando a imagem: Moisés e Arão diante de Faraó e da corte egípcia. A lição prática é o "vez após vez": a coragem de Moisés não foi um gesto único, foi voltar repetidamente ao mesmo confronto, sem saber quantas vezes ainda seriam necessárias.
 @HLEIA Leia o relato na Bíblia: Êxodo 2:15–5:23; 7:1–11:10; 12:29-41; 13:17–14:31; Deuteronômio 29:2, 3; 34:5-7
 @HROTULO Analise mais a fundo
 @HQ 1. Não sabemos o nome do Faraó que vivia na época da saída dos israelitas do Egito. Além disso, até hoje não foram encontrados registros egípcios sobre esse acontecimento. Mesmo assim, por que podemos acreditar nesse relato da Bíblia? (g04 8/4 7 § 4–9 § 1)
+@CAMPO Sua resposta
 Resposta: Podemos acreditar porque a ausência de registro egípcio tem explicação histórica conhecida. Era costumeiro os escribas egípcios omitirem deliberadamente os nomes dos inimigos do faraó e apagarem registros de derrotas: o egiptólogo John Ray descreve como Tutmés III tentou apagar todos os vestígios da rainha Hatshepsut. Além disso, por não revelar o nome do faraó, o relato bíblico chama atenção pra Deus, não pro governante.
 
 @HQ 2. Por que as pessoas tinham medo de Faraó? (w14 15/4 8 § 1) A
+@CAMPO Sua resposta
 Resposta: Porque Faraó era considerado um deus vivo pelos egípcios, com poder absoluto. Segundo a Sentinela de 15 de abril de 2014, ele "tinha mais sabedoria e poder do que qualquer mortal", e usava uma coroa com a imagem de uma naja pronta pra dar o bote. É diante desse tipo de figura que Jeová mandou Moisés exigir a libertação do povo (Êxodo 3:10).
 
 @HQ 3. De que forma as Dez Pragas humilharam os deuses do Egito? (it “Deuses e deusas” §§ 24-26)
+@CAMPO Sua resposta
 Resposta: Cada praga atingiu diretamente um deus específico. A transformação do Nilo em sangue desonrou o deus-Nilo, Hápi; a praga das rãs humilhou a deusa-rã Heqt; os borrachudos derrotaram os sacerdotes-magos, que atribuíam a Tot o poder da magia. Da quarta praga em diante, os israelitas ficaram protegidos enquanto os egípcios eram atingidos: a pestilência no gado humilhou deusas-vaca, os furúnculos atingiram deuses curadores, a saraivada envergonhou deuses do clima, os gafanhotos derrotaram o deus da fertilidade Min, e a escuridão atingiu os deuses-sol Rá e Hórus. A morte dos primogênitos foi a humilhação máxima, já que os próprios faraós se diziam filhos de Rá.
 
 @HQ 4. O que indica que o caminho que Jeová abriu era largo o suficiente para todo o povo passar, e quantos israelitas devem ter atravessado o Mar Vermelho? (it “Êxodo” §§ 46-51) B
+@CAMPO Sua resposta
 Resposta: O tamanho da operação exigia um canal largo. Como o povo atravessou numa só noite, o canal provavelmente teve mais de um quilômetro de largura: precisava caber toda a nação com bagagem e rebanhos, e depois o exército egípcio inteiro que foi atrás. A Bíblia não dá uma cifra exata, mas estimativas apontam pra possivelmente três milhões de pessoas atravessando até a manhã.
 @HIMG A | https://cms-imgp.jw-cdn.org/img/p/1102025911/univ/art/1102025911_univ_cnt_2_lg.jpg | | Antigo relevo mostrando um dos Faraós que viveram depois do tempo de Moisés
 Comentando a imagem: um relevo antigo mostra um dos faraós que viveram depois de Moisés, já que não existe registro de imagem do faraó específico do Êxodo. Ligada à pergunta 2 de "Analise mais a fundo", sobre por que as pessoas tinham medo de Faraó.
@@ -139,17 +144,23 @@ Comentando a imagem: capa de uma sequência de cenas mostrando uma irmã experie
 
 @HBLOCO Medite no que aprendeu
 @HITEM Como o exemplo de coragem de Moisés nos fortalece quando achamos que não somos qualificados para cumprir uma designação de Jeová? (Êxo. 4:10; 7:6, 7)
+@CAMPO Sua resposta
 Resposta: Moisés genuinamente não se achava capaz (Êxodo 4:10), e Jeová deu a ele um ajudante e a capacidade de realizar milagres, ferramentas concretas pra missão concreta (Êxodo 4:14-17).
 @HITEM Assim como Arão ajudou Moisés a cumprir sua designação com coragem, como podemos ajudar nossos irmãos hoje? (Êxo. 4:14-16) C
+@CAMPO Sua resposta
 Resposta: Aceitando ser o apoio prático de alguém inseguro numa designação (Êxodo 4:14-16).
 @HITEM De que maneiras você pode imitar a coragem de Moisés nesse relato?
+@CAMPO Sua resposta
 Resposta: Voltar a uma tarefa difícil mais de uma vez, mesmo depois de resultados ruins nas tentativas anteriores, do jeito que Moisés voltou a Faraó praga após praga sem desistir.
 @HBLOCO Pense no quadro completo
 @HITEM O que esse relato me ensina sobre Jeová?
+@CAMPO Sua resposta
 Resposta: Que ele equipa quem se sente despreparado.
 @HITEM Como esse relato está relacionado com o propósito de Jeová?
+@CAMPO Sua resposta
 Resposta: A libertação do Egito formou a nação através da qual viria o Messias.
 @HITEM Quando Moisés for ressuscitado, o que eu gostaria de perguntar para ele sobre esse período de sua vida?
+@CAMPO Sua resposta
 Resposta: Uma pergunta possível: o que exatamente mudou nele entre o Moisés que pediu a Jeová que enviasse “qualquer outro” (Êxodo 4:13) e o Moisés que voltou a Faraó dez vezes seguidas sem desistir.
 @APRENDAMAIS Aprenda mais
 Veja como o significado do nome de Jeová pode ajudar crianças pequenas a ser corajosas. Vídeo *O nome de Jeová* (1:54).

@@ -7,7 +7,7 @@
 
 @ABERTURA Preparando a Mente e o Coração
 @ISCA Um povo inteiro passa a vida se gabando da própria riqueza e da própria força, convencido de que nada nem ninguém consegue tocá-lo. Jeremias 48 descreve exatamente esse povo, Moabe, poucos parágrafos antes de anunciar a queda dele. Mas o mesmo capítulo termina de um jeito que ninguém esperaria de uma profecia de julgamento: com uma promessa de restauração. Como anda a sua atenção quando o assunto não é novidade?
-@RESUMO Jeremias 47 é uma profecia curta contra os filisteus: uma inundação vinda "desde o norte" vai destruir Gaza e Ascalom (Jeremias 47:2, 3). Jeremias 48, bem mais longo, faz o mesmo contra Moabe, nação vizinha de Judá. A causa do julgamento é declarada sem rodeios: "Ouvimos falar do orgulho de Moabe... foi contra Jeová que ele se enalteceu" (Jeremias 48:29, 42). Moabe confiava nas próprias riquezas e nunca tinha sido exilada (Jeremias 48:7, 11). Mas o capítulo não é só condenação: Jeová diz "por isso o meu coração lamentará... por Moabe" (Jeremias 48:31, 36), e termina com uma promessa: "na parte final dos dias, vou ajuntar o povo cativo de Moabe" (Jeremias 48:47). Pra estudar bem, leia os dois capítulos notando o padrão: motivo do julgamento, extensão dele, e o que Jeová sente ao aplicá-lo.
+@RESUMO Jeremias 47 é uma profecia curta contra os filisteus: uma inundação vinda "desde o norte" vai destruir Gaza e Ascalom (Jeremias 47:2, 3). Jeremias 48, bem mais longo, faz o mesmo contra Moabe, nação vizinha de Judá. A causa do julgamento é declarada sem rodeios: "Ouvimos falar do orgulho de Moabe... foi contra Jeová que ele se enalteceu" (Jeremias 48:29, 42). Moabe confiava nas próprias riquezas e nunca tinha sido exilada (Jeremias 48:7, 11). Mas o capítulo não é só condenação: Jeová diz "Por isso o meu coração lamentará... por Moabe" (Jeremias 48:31, 36), e termina com uma promessa: "na parte final dos dias, vou ajuntar o povo cativo de Moabe" (Jeremias 48:47). Pra estudar bem, leia os dois capítulos notando o padrão: motivo do julgamento, extensão dele, e o que Jeová sente ao aplicá-lo.
 @ENTENDENDO Entendendo a Leitura da Semana
 - O que está acontecendo aqui | Duas nações vizinhas de Judá, Filisteia e Moabe, recebem profecias de destruição. A de Moabe é detalhada: o motivo é o orgulho de uma nação que nunca tinha sofrido perda nenhuma (Jeremias 48:11, 29).
 - O que aprendo sobre Jeová nesta leitura | Que ele não é indiferente ao castigo que aplica: "o meu coração lamentará... como uma flauta" por Moabe (Jeremias 48:36). E que mesmo a sentença mais severa do livro contra uma nação estrangeira termina com uma promessa de restauração (Jeremias 48:47).
@@ -29,7 +29,7 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): pedir um cora
 @PARTE 1. Jeová é um Juiz justo e misericordioso | 10 min | discurso
 @FONTE Jeremias 48:27, 29, 42; Jeremias 48:31, 36; Jeremias 48:47; Estudo Perspicaz das Escrituras, verbete "Moabe, Moabitas"; A Sentinela de maio de 2024, página 17, parágrafo 10
 @COMENTARIO
-A parte tem dois movimentos. **(1) Jeová puniria Moabe por ter maltratado Judá, e o motivo declarado é o orgulho (Jeremias 48:27, 29, 42).** “Ouvimos falar do orgulho de Moabe; ele é muito arrogante.” (Jeremias 48:29) E a sentença: “Moabe será aniquilado e deixará de existir como povo, pois foi contra Jeová que ele se enalteceu.” (Jeremias 48:42) **(2) Mesmo destruindo Moabe, Jeová não ficaria feliz com isso, e mostraria misericórdia depois (Jeremias 48:31, 36, 47).** “Por isso o meu coração lamentará... por Moabe” (Jeremias 48:31, 36), e a profecia termina com a promessa: “Mas, na parte final dos dias, vou ajuntar o povo cativo de Moabe.” (Jeremias 48:47)
+A parte tem dois movimentos. **(1) Jeová puniria Moabe por ter maltratado Judá, e o motivo declarado é o orgulho (Jeremias 48:27, 29, 42).** “Ouvimos falar do orgulho de Moabe; ele é muito arrogante.” (Jeremias 48:29) E a sentença: “Moabe será aniquilado e deixará de existir como povo, Pois foi contra Jeová que ele se enalteceu.” (Jeremias 48:42) **(2) Mesmo destruindo Moabe, Jeová não ficaria feliz com isso, e mostraria misericórdia depois (Jeremias 48:31, 36, 47).** “Por isso o meu coração lamentará... por Moabe” (Jeremias 48:31, 36), e a profecia termina com a promessa: “Mas, na parte final dos dias, vou ajuntar o povo cativo de Moabe.” (Jeremias 48:47)
 @PARAMEDITAR O que a misericórdia de Jeová nos incentiva a fazer agora? — w24.05 17 § 10.
 @APLICAR Como aplicar? Jeová junta, na mesma profecia, dureza total com o pecado e misericórdia real depois que o julgamento cumpriu seu propósito. Nesta semana, ao lidar com alguém que errou, seja quem for, pratique os dois lados: nomear o erro sem suavizar, e continuar mantendo aberta a porta da restauração depois.
 @IMAGEM https://cms-imgp.jw-cdn.org/img/p/202026259/univ/art/202026259_univ_cnt_1_lg.jpg | Uma jovem segurando uma foto de sua família e se lembrando de como era sua vida quando servia a Jeová. Na TV aparece a notícia falando do fim das religiões. | Mesmo depois que a grande tribulação começar, alguns talvez decidam escutar a nossa mensagem
@@ -95,27 +95,32 @@ Continua o estudo do livro [*Ande Corajosamente com Deus*](https://www.jw.org/fi
 @HISTORIA Raabe — Ela escolheu o lado de Jeová
 @HBLOCO Para considerar
 @HITEM De que maneiras Raabe mostrou coragem?
+@CAMPO Sua resposta
 Resposta: Raabe morava em Jericó, cidade cananeia marcada pela mesma violência e depravação que caracterizavam toda a região, incluindo rituais que envolviam prostituição e sacrifício de crianças a deuses como Baal e Moloque. Ela mesma vivia da prostituição, mas os relatos sobre Jeová, sobre a libertação de Israel do Egito e a travessia do Mar Vermelho, já tinham chegado a Jericó e mexido com ela antes mesmo dos espiões baterem à sua porta. Quando dois espiões enviados por Josué se hospedaram na casa dela, construída sobre a muralha da cidade, o rei de Jericó mandou capturá-los. Raabe escondeu os dois homens entre as hastes de linho que secavam no terraço da casa e enganou os soldados do rei, dizendo que os espiões já tinham saído. Depois, ajudou os dois a escapar pela janela com uma corda, porque a casa ficava sobre o muro da cidade. Em troca, os espiões prometeram poupar ela e sua família quando Israel atacasse, desde que ela amarrasse um cordão vermelho na janela. Quando Jericó caiu, Raabe e sua família foram os únicos poupados na cidade inteira, e ela passou a viver entre o povo de Jeová pelo resto da vida.
 @HIMG  | https://cms-imgp.jw-cdn.org/img/p/1102025914/univ/art/1102025914_univ_cnt_1_lg.jpg | Raabe amarrando uma corda escarlate na janela de sua casa. |
 Comentando a imagem: Raabe, sozinha na janela, amarra a corda escarlate, com o vale de Jericó ao fundo. É o sinal que os espiões combinaram com ela: “esta corda de fio escarlate na janela” (Josué 2:18), e o relato diz que, depois de deixá-los ir, “ela amarrou a corda escarlate na janela” (Josué 2:21). A fonte publica esta imagem no corpo do capítulo, sem rótulo de letra e sem legenda. A lição prática é que a fé de Raabe não ficou só na decisão de proteger os espiões: ela fez exatamente o que foi combinado, e a obediência num detalhe visível foi o que salvou a casa dela.
 @HLEIA Leia o relato na Bíblia: Josué 2:1-24; 5:1; 6:14-25; Hebreus 11:30, 31; Tiago 2:24, 25
 @HROTULO Analise mais a fundo
 @HQ 1. Como era a vida de Raabe em Jericó? (w13 1/11 12 § 4–13 § 1)
+@CAMPO Sua resposta
 O que a pergunta quer dizer: O que se sabe sobre o passado de Raabe antes de conhecer os espiões.
 O que o texto nos mostra: Raabe era uma prostituta numa cidade cananeia marcada por violência e depravação. A Sentinela de 1.º de novembro de 2013 explica: “Na sociedade cananeia, a profissão de Raabe talvez fosse considerada aceitável”, mas ela “sem dúvida ansiava uma vida melhor”. O artigo é direto sobre isso: “Raabe era uma prostituta... Mas a Bíblia é bem clara e não esconde os fatos.”
 Como aplicar na nossa vida: A honestidade da Bíblia sobre o passado de Raabe é parte do que torna a transformação dela mais notável, não menos. Existe algum passado que você acha grande demais pra Jeová aceitar uma mudança de coração?
 Resposta: Raabe era uma prostituta numa cidade marcada por depravação, mas já ansiava uma vida melhor antes mesmo dos espiões chegarem, porque os relatos sobre Jeová e a libertação de Israel já tinham mexido com sua consciência.
 @HQ 2. Como sabemos que os espiões não tinham intenções imorais quando ficaram na casa de Raabe? (it “Prostituta” § 16)
+@CAMPO Sua resposta
 O que a pergunta quer dizer: Se há alguma base pra suspeitar da motivação dos espiões ao ficar naquela casa.
 O que o texto nos mostra: O Estudo Perspicaz das Escrituras, no verbete “Prostituta”, cita os comentaristas C. F. Keil e F. Delitzsch: “Entrarem eles na casa duma pessoa assim não suscitaria muita suspeita. Ademais, a localização da casa dela junto à muralha da cidade, ou sobre esta, facilitava a fuga.” O verbete conclui que “seria totalmente desarrazoado supor que os espias cometeram imoralidade com Raabe”.
 Como aplicar na nossa vida: Jeová guiou os passos dos espiões até a pessoa certa pra cumprir o propósito dele. Você confia que Jeová pode usar circunstâncias comuns, não só milagres visíveis, pra cuidar de você?
 Resposta: Sabemos porque a localização e as circunstâncias da hospedagem eram naturais pra qualquer viajante, e porque a bênção clara de Jeová sobre Raabe depois torna desarrazoado supor qualquer imoralidade.
 @HQ 3. Por que havia fileiras de hastes de linho no terraço de Raabe, e para que o linho era usado? (it “Linho” n.º 1 §§ 1-3) A
+@CAMPO Sua resposta
 O que a pergunta quer dizer: O que era aquele material específico que aparece no relato, e por que estava ali.
 O que o texto nos mostra: O linho era colhido e depois secado ao sol antes de virar tecido. O Estudo Perspicaz explica que “é provável que as hastes de linho no terraço da casa de Raabe... tivessem sido colocadas ali para este fim”, o processamento normal do linho, não um esconderijo artificial.
 Como aplicar na nossa vida: Jeová não precisou de um milagre visível pra proteger os espiões, usou uma atividade doméstica totalmente comum. Você já recebeu ajuda de Jeová através de algo comum do dia a dia, sem perceber na hora?
 Resposta: As hastes de linho estavam secando no terraço como parte do processamento normal da planta, o que tornou o esconderijo dos espiões natural e nada suspeito.
 @HQ 4. Por que não foi errado Raabe despistar os homens do rei? (w04 1/12 8 § 6) B
+@CAMPO Sua resposta
 O que a pergunta quer dizer: Se a mentira de Raabe pros soldados do rei contradiz o padrão bíblico contra mentir.
 O que o texto nos mostra: A Sentinela de 1.º de dezembro de 2004 explica: “Devido à fé que havia adquirido em Jeová, Raabe protegeu os espiões... ela não tinha nenhuma obrigação de informar aos homens que procuravam prejudicar o povo de Deus onde os espiões se encontravam.” Por isso, “Raabe foi 'declarada justa pelas obras', incluindo o ato de enganar os emissários do rei”.
 Como aplicar na nossa vida: Não existe obrigação de entregar informação sensível a quem só vai usá-la pra prejudicar o povo de Jeová. Você já precisou proteger informação sobre um irmão ou irmã diante de alguém hostil à congregação?
@@ -128,17 +133,23 @@ Comentando a imagem: Raabe fala com dois homens do rei de Jericó, orientando-os
 Comentando a imagem: uma irmã algemada permanece em silêncio diante de guardas penitenciários que fazem perguntas, com um soldado armado de guarda. Ligada à pergunta de "Medite no que aprendeu" sobre pressão pra revelar informação confidencial sobre os irmãos, a cena aplica hoje o mesmo dilema de Raabe.
 @HBLOCO Medite no que aprendeu
 @HITEM Por que Raabe precisou de coragem para abandonar sua vida imoral e adorar a Jeová com os israelitas? O que os estudantes da Bíblia podem aprender do exemplo dela?
+@CAMPO Sua resposta
 Resposta: Ela precisou romper com tudo que conhecia, profissão, cidade, cultura, pra se juntar a um povo estrangeiro no exato momento em que esse povo estava atacando a cidade dela.
 @HITEM A Bíblia condena a mentira. Mas às vezes inimigos do povo de Deus podem nos pressionar a revelar informações confidenciais sobre nossos irmãos. Em casos assim, o que podemos aprender do exemplo de Raabe? (Pro. 11:13; Ecl. 3:7; Efé. 4:25) C
+@CAMPO Sua resposta
 Resposta: (Provérbios 11:13; Eclesiastes 3:7; Efésios 4:25) Que existe uma diferença entre mentira comum e recusa em entregar informação a quem quer prejudicar o povo de Jeová.
 @HITEM De que outras maneiras você pode imitar a coragem de Raabe?
+@CAMPO Sua resposta
 Resposta: Três formas concretas, escolha a que serve pra sua vida agora: romper de vez com um hábito ou ambiente do seu passado que ainda te atrai, mesmo que isso custe amizades ou conforto; arriscar-se por alguém que Jeová está guiando, mesmo sem entender todo o plano; ou pedir abertamente ajuda pra sair de uma situação difícil, em vez de tentar resolver tudo sozinho.
 @HBLOCO Pense no quadro completo
 @HITEM O que esse relato me ensina sobre Jeová?
+@CAMPO Sua resposta
 Resposta: Que ele vê o coração antes do currículo: uma ex-prostituta cananeia entrou pra linhagem de Jesus (Mateus 1:5) por causa da fé que demonstrou.
 @HITEM Como esse relato está relacionado com o propósito de Jeová?
+@CAMPO Sua resposta
 Resposta: Raabe se tornou ancestral direta de Davi e, mais tarde, de Jesus.
 @HITEM O que eu gostaria de perguntar para Raabe quando ela for ressuscitada?
+@CAMPO Sua resposta
 Resposta: Três perguntas possíveis: o que exatamente, antes mesmo dos espiões chegarem, já tinha convencido ela de que Jeová era o Deus verdadeiro; o que ela sentiu ao amarrar o cordão vermelho na janela, sem saber se a promessa seria cumprida; e como foi se adaptar à vida nova entre o povo de Jeová depois da queda de Jericó.
 @APRENDAMAIS Aprenda mais
 O que a história de Raabe nos ensina sobre como sobreviver ao dia de Jeová? "Onde você deverá estar quando vier o fim?" (w09 15/5 6-8).

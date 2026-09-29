@@ -236,7 +236,7 @@ Pra Laurinha: Ter paciência com os irmãos.
 
 **18. O que você está decidido a fazer?**
 ```
-Resposta: Jeová dá muito valor a tudo o que fazemos pra ajudar nossa congregação a ter paz. Por isso, devemos procurar oportunidades todos os dias: continuar sendo bondosos no que falamos e como falamos, pedir desculpas, se esforçar pra reparar o dano quando ofendermos alguém, e desenvolver um forte amor pelos irmãos, o tipo de amor que ajuda a perdoar de coração. Assim, contribuímos pra um ambiente de paz na congregação e estamos entre os mansos que "possuirão a terra e terão grande alegria na abundância de paz" (Salmo 37:11).
+Resposta: Jeová dá muito valor a tudo o que fazemos pra ajudar nossa congregação a ter paz. Por isso, devemos procurar oportunidades todos os dias: continuar sendo bondosos no que falamos e como falamos, pedir desculpas, se esforçar pra reparar o dano quando ofendermos alguém, e desenvolver um forte amor pelos irmãos, o tipo de amor que ajuda a perdoar de coração. Assim, contribuímos pra um ambiente de paz na congregação e estamos entre os mansos que "possuirão a terra E terão grande alegria na abundância de paz" (Salmo 37:11).
 
 Complementar 1: Repare que a lista final ("continuar sendo bondoso", "pedir desculpas", "reparar o dano", "desenvolver amor") resume exatamente as quatro lições dos três personagens do relato, não é uma conclusão genérica, é um resumo prático amarrado ao estudo inteiro.
 

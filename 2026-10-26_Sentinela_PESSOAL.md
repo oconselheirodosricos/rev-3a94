@@ -31,7 +31,7 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 **1. O que Zacarias disse em sua profecia?**
 
 ```
-Resposta: Cheio de espírito santo, Zacarias respondeu à pergunta que parentes e vizinhos faziam sobre o recém-nascido João, "o que será que esse menino vai ser?" (Lucas 1:57-66), dizendo que João ajudaria as pessoas a se arrepender e a se preparar pro Messias que logo viria (Amós 3:7; Lucas 1:67-79). Mas ele foi além de descrever o filho: profetizou algo que tem a ver com cada um de nós hoje, sobre três coisas que devemos dar valor: o presente da salvação, o privilégio de servir a Jeová, e a responsabilidade de pregar. A nota "a" do artigo diz: "Assista ao trecho que mostra a profecia de Zacarias relacionada a Lucas 1:67 com o título “O Nome Dele É João”, do vídeo A História e o Ministério de Jesus: Episódio 1."
+Resposta: Cheio de espírito santo, Zacarias respondeu à pergunta que parentes e vizinhos faziam sobre o recém-nascido João, "O que será que esse menino vai ser?" (Lucas 1:57-66), dizendo que João ajudaria as pessoas a se arrepender e a se preparar pro Messias que logo viria (Amós 3:7; Lucas 1:67-79). Mas ele foi além de descrever o filho: profetizou algo que tem a ver com cada um de nós hoje, sobre três coisas que devemos dar valor: o presente da salvação, o privilégio de servir a Jeová, e a responsabilidade de pregar. A nota "a" do artigo diz: "Assista ao trecho que mostra a profecia de Zacarias relacionada a Lucas 1:67 com o título “O Nome Dele É João”, do vídeo A História e o Ministério de Jesus: Episódio 1."
 
 Complementar 1: Repare que a profecia não veio durante o serviço de Zacarias como sacerdote no templo, veio dele como pai, cheio de emoção, no dia da circuncisão do próprio filho (Lucas 1:59-67). Jeová usa momentos familiares comuns pra revelar verdades enormes, não só ocasiões formais.
 
@@ -86,7 +86,7 @@ Resposta: Jesus ensinou seus seguidores a adorar Jeová da maneira certa e deu s
 
 Complementar 1: Repare na ordem: primeiro o ensino (como adorar certo), depois o resgate (o que cobre a nossa imperfeição ao tentar). Jesus não só morreu por nós, também nos ensinou como viver antes disso, e as duas coisas juntas formam o livramento completo do pecado.
 
-Complementar 2: "Todo aquele que nele exercer fé" (João 3:16) é condição, não automatismo. O resgate está disponível pra todos, mas só livra de fato quem exerce fé nele, o que inclui viver de acordo com o que Jesus ensinou, não só acreditar de longe.
+Complementar 2: "todo aquele que nele exercer fé" (João 3:16) é condição, não automatismo. O resgate está disponível pra todos, mas só livra de fato quem exerce fé nele, o que inclui viver de acordo com o que Jesus ensinou, não só acreditar de longe.
 
 Pra Laurinha: Jesus deu a vida por nós.
 ```
@@ -109,7 +109,7 @@ O que aprendemos nesse trecho: por causa do resgate, temos o privilégio de serv
 **7. De acordo com Lucas 1:74, 75, que privilégio Jeová dá ao seu povo?**
 
 ```
-Resposta: "O privilégio de lhe prestar destemidamente serviço sagrado" (Lucas 1:74, 75). Nosso "serviço sagrado" a Jeová inclui todos os aspectos da adoração verdadeira: pregar, orar, estudar a Bíblia, assistir às reuniões, assembleias e congressos, além de atividades ligadas à adoração, como serviço em Betel e construção e manutenção de Salões do Reino e de Assembleias.
+Resposta: "o privilégio de lhe prestar destemidamente serviço sagrado" (Lucas 1:74, 75). Nosso "serviço sagrado" a Jeová inclui todos os aspectos da adoração verdadeira: pregar, orar, estudar a Bíblia, assistir às reuniões, assembleias e congressos, além de atividades ligadas à adoração, como serviço em Betel e construção e manutenção de Salões do Reino e de Assembleias.
 
 Complementar 1: Repare que "serviço sagrado" é uma categoria bem mais ampla do que só pregar. Alguém que serve na manutenção de um Salão do Reino está prestando o mesmo tipo de serviço sagrado que alguém pregando de casa em casa, mesmo que a atividade pareça mais "prática" que "espiritual".
 
