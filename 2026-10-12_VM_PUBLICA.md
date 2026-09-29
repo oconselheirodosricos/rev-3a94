@@ -7,7 +7,7 @@
 
 @ABERTURA Preparando a Mente e o Coração
 @ISCA Um grupo de refugiados promete a Jeremias, com toda a solenidade, obedecer ao que Jeová disser, "Quer a sua palavra seja boa quer má" (Jeremias 42:6). Dez dias depois, a resposta chega, e eles a rejeitam na hora. Prometer obedecer antes de ouvir a resposta é fácil; a leitura desta semana mostra o que acontece quando a resposta real não é a que se esperava. Que promessa a Jeová você já fez que ficou mais difícil de cumprir depois que soube o que ela realmente exigia?
-@RESUMO A leitura de Jeremias 42 a 44 mostra o que acontece quando alguém pede orientação a Jeová e depois rejeita a resposta. Depois do assassinato de Gedalias, Joanã e o resto do povo pedem a Jeremias que ore a Jeová e prometem obedecer, mas assim que a resposta chega: fiquem em Judá, não vão pro Egito: eles acusam o profeta de mentir e forçam todo o restante do povo a ir pro Egito mesmo assim. Lá, o povo volta a adorar a "Rainha do Céu" e culpa o abandono desse culto pelos desastres que sofreram, invertendo causa e efeito. Jeová decreta que quase todos morrerão no Egito, e dá um sinal verificável: o faraó Hofra será entregue aos inimigos dele. Pra estudar bem, repare no intervalo entre prometer obedecer e efetivamente obedecer: nos três capítulos, ele nunca é preenchido.
+@RESUMO A leitura de Jeremias 42 a 44 mostra o que acontece quando alguém pede orientação a Jeová e depois rejeita a resposta. Depois do assassinato de Gedalias, Joanã e o resto do povo pedem a Jeremias que ore a Jeová e prometem obedecer, mas assim que a resposta chega: fiquem em Judá, não vão pro Egito: Azarias, Joanã e "todos os homens presunçosos" acusam o profeta de mentir; todo o povo desobedece, e Joanã e os chefes do exército levam embora todo o restante de Judá pro Egito mesmo assim (Jeremias 43:2-7). Lá, o povo volta a adorar a "Rainha do Céu" e culpa o abandono desse culto pelos desastres que sofreram, invertendo causa e efeito. Jeová decreta que quase todos morrerão no Egito, e dá um sinal verificável: o faraó Hofra será entregue aos inimigos dele. Pra estudar bem, repare no intervalo entre prometer obedecer e efetivamente obedecer: nos três capítulos, ele nunca é preenchido.
 @ENTENDENDO Entendendo a Leitura da Semana
 - O que está acontecendo aqui | Um grupo de judeus pede orientação a Jeová sobre ir ou não para o Egito, promete obedecer de antemão, recebe a resposta e a rejeita na mesma hora. No Egito, volta a adorar a "Rainha do Céu" e culpa o abandono desse culto pelos próprios desastres.
 - O que aprendo sobre Jeová neste estudo | Que ele responde de verdade quando é consultado, mesmo sabendo que a resposta vai ser rejeitada, e que dá sinais concretos e verificáveis do que anuncia.
@@ -16,7 +16,7 @@
 - Na relação com Jeová | Perguntar se eu só prometo obedecer quando já sei que vou gostar da resposta.
 - Na vida | Quando as coisas piorarem depois de uma mudança certa, resistir à tentação de culpar a mudança em vez da causa real.
 - Na família | Conversar sobre alguma decisão que a família tomou "prometendo obedecer" e depois quis recuar quando soube o preço.
-- Na congregação | Desconfiar quando um grupo inteiro se sente mais corajoso que um profeta sozinho.
+- Na congregação | Desconfiar quando um grupo inteiro, movido pelo medo, pressiona contra uma orientação clara.
 - Na pregação | Com quem culpa a religião verdadeira pelos próprios problemas, mostrar que às vezes o problema começou quando a pessoa abandonou o que sabia ser certo.
 @ORACAO Ideias pra levar a Jeová (não é oração pronta, é direção): pedir honestidade pra só prometer obedecer depois de entender o custo; agradecer porque Jeová responde de verdade mesmo sabendo que a resposta será rejeitada; pedir discernimento pra não inverter causa e efeito quando as coisas vão mal. Cada um pode meditar: existe alguma promessa que fiz a Jeová antes de saber o que ela realmente ia exigir de mim?
 @FIM-ABERTURA
@@ -39,21 +39,21 @@ Comentando a imagem: dentro de um carro, uma irmã mais experiente mostra pra um
 @COMENTARIO
 O programa traz duas perguntas, cada uma com campo de resposta próprio: a pergunta específica da semana e a pergunta fixa sobre as joias espirituais.
 @PERGUNTA Jer. 44:18 — Os israelitas disseram que estavam sofrendo porque tinham deixado de “fazer sacrifícios à Rainha do Céu”. Por que eles não podiam dizer isso? (it “Obstinação” § 4)
-@RESPOSTA O versículo mostra a lógica invertida do povo: "Depois que deixamos de fazer sacrifícios à Rainha do Céu... começou a nos faltar tudo, e fomos eliminados pela espada e pela fome." O Estudo Perspicaz, no verbete "Obstinação" (§4), trata desse tipo de raciocínio: o povo invertia causa e efeito, atribuindo a um suposto abandono do ídolo os desastres que na verdade foram causados PELA adoração a ele.
+@RESPOSTA O versículo mostra o raciocínio do povo: "Depois que deixamos de fazer sacrifícios à Rainha do Céu... começou a nos faltar tudo, e fomos eliminados pela espada e pela fome." O Estudo Perspicaz, no verbete "Obstinação" (§ 4), explica por que eles não podiam dizer isso: "Visto que Jeová dá aviso antecipado do seu julgamento contra os obstinados, a execução desse julgamento não pode ser atribuída a outras causas ou a uma fonte diferente." O verbete manda comparar com Jeremias 44:16-23.
 @PERGUNTA Que joias espirituais você encontrou na leitura da Bíblia desta semana?
 @RESPOSTA As joias listadas abaixo são a resposta a essa pergunta.
 @APLICAR Como aplicar? Ao notar alguém invertendo causa e efeito pra justificar uma escolha, pergunte-se: essa conclusão veio primeiro da evidência, ou a evidência foi escolhida pra caber na conclusão que eu já queria?
-@JOIA Jeremias 42:5, 6: "Que Jeová seja testemunha verdadeira e fiel contra nós, se não fizermos exatamente como Jeová, seu Deus, nos instruir." A promessa não podia ser mais solene, e não durou nem dez dias. Aprendi que o valor de uma promessa a Jeová está em resistir depois que a resposta real chega, não em quão solene ela soa na hora de fazer.
+@JOIA Jeremias 42:5, 6: "Que Jeová seja testemunha verdadeira e fiel contra nós, se não fizermos exatamente como Jeová, seu Deus, nos instruir." A promessa foi feita antes da resposta, e a resposta só veio depois de dez dias (Jeremias 42:7); quando ela veio, eles desobedeceram (Jeremias 43:4). Aprendi que o valor de uma promessa a Jeová está em resistir depois que a resposta real chega, não em quão solene ela soa na hora de fazer.
 @JOIA Jeremias 42:10-12: "Vou edificá-los e não os derrubarei... Eu lhes mostrarei misericórdia." A promessa de Jeová era generosa, não era só "evitem o pior". Aprendi que obedecer a Jeová raramente é escolher entre duas opções ruins.
 @JOIA Jeremias 43:2, 3: "O que você está dizendo é mentira!... É Baruque... que está instigando você contra nós." Acusar o mensageiro foi mais fácil do que obedecer. Aprendi que quando uma mensagem bíblica incomoda, é comum questionar a integridade de quem a trouxe em vez de discordar abertamente dela.
 @JOIA Jeremias 44:16, 17: "Não daremos ouvidos à palavra que você nos falou em nome de Jeová... certamente cumpriremos todas as palavras que a nossa boca falou." O povo prefere cumprir a PRÓPRIA palavra a cumprir a de Jeová, e diz isso abertamente. Aprendi que a rebelião mais perigosa é a que se declara e se chama de fidelidade a algo.
 @JOIA Jeremias 44:18: "Depois que deixamos de fazer sacrifícios à Rainha do Céu... começou a nos faltar tudo." A lógica está de cabeça pra baixo: a idolatria foi a CAUSA da calamidade. Aprendi a desconfiar de qualquer explicação que me convide a voltar exatamente pro que já tinha me trazido problema antes.
-@JOIA Jeremias 44:29, 30: Jeová dá um sinal verificável: Jeová ia “entregar Faraó Hofra, rei do Egito, nas mãos dos inimigos dele”, pra provar que a promessa dele “certamente se cumprirá”. Aprendi que Jeová costuma dar algo concreto e checável pra sustentar a confiança em promessas ainda maiores.
+@JOIA Jeremias 44:29, 30: Jeová dá um sinal verificável: Jeová ia “entregar Faraó Hofra, rei do Egito, nas mãos dos inimigos dele”, pra provar que a promessa dele “certamente se cumprirá”. Aprendi que Jeová deu algo concreto e checável pra que soubessem que o aviso dele ia se cumprir.
 
 @PARTE 3. Leitura da Bíblia | 4 min
 @FONTE Jeremias 43:1-13; Melhore Sua Leitura e Seu Ensino, lição 11
 @COMENTARIO
-A leitura pega o momento em que Jeremias termina de transmitir a resposta de Jeová (43:1) e a reação imediata: Azarias, Joanã e "todos os homens presunçosos" o acusam de mentir e de estar sendo manipulado por Baruque (43:2, 3). Eles desobedecem, levam embora todo o restante do povo pra o Egito, até Tafnes (43:4-7). Lá, Jeová manda Jeremias enterrar pedras grandes na entrada da casa do faraó em Tafnes e profetizar que Jeová vai convocar Nabucodonosor e “colocar o seu trono bem em cima destas pedras” (43:8-13).
+A leitura pega o momento em que Jeremias termina de transmitir a resposta de Jeová (43:1) e a reação imediata: Azarias, Joanã e "todos os homens presunçosos" o acusam de mentir e de estar sendo manipulado por Baruque (43:2, 3). Joanã, os chefes do exército e todo o povo desobedecem, e Joanã e os chefes do exército levam embora todo o restante de Judá pra o Egito, até Tafnes (43:4-7). Lá, Jeová manda Jeremias pegar pedras grandes e escondê-las “na argamassa do pátio de tijolos que fica na entrada da casa de Faraó, em Tafnes” (43:9), e anunciar que Jeová vai convocar Nabucodonosor e “colocar o seu trono bem em cima destas pedras” (43:8-13).
 @APLICAR **Na leitura:** a lição 11 de [*Melhore Sua Leitura e Seu Ensino*](https://www.jw.org/finder?wtlocale=T&pub=th), "Fale de modo animado", pede: “Empolgue-se com o assunto”, “Pense no seu público” e “Dê vida à sua apresentação”. **Na pregação:** este trecho serve bem pra mostrar que fugir de um perigo real pode levar direto pro meio dele, quando a fuga contraria a orientação de Jeová.
 
 @SECAO FAÇA SEU MELHOR NO MINISTÉRIO
@@ -90,7 +90,7 @@ Comentando a imagem: um homem lê a Bíblia (ou outro livro religioso) sentado n
 
 @PARTE 7. Necessidades locais | 15 min
 @COMENTARIO
-NOTA HONESTA: a apostila não traz texto próprio pra esta parte: "Necessidades locais" é preenchida localmente pelo corpo de anciãos de cada congregação.
+NOTA HONESTA: a apostila não traz texto próprio pra esta parte: "Necessidades locais": a apostila não traz o conteúdo desta parte.
 
 @PARTE 8. Estudo bíblico de congregação | 30 min | estudo de livro
 @FONTE Ande Corajosamente com Deus, capítulo 12; referências das perguntas de "Analise mais a fundo": A Sentinela de 15 de junho de 2006, “Toma conta desta videira”!, página 16, §§ 1-2 (pergunta 1); A Sentinela de 1.º de março de 2011, ‘Uma terra que manava leite e mel’, página 15 (pergunta 2); A Sentinela de 15 de outubro de 2004, "Percorre o país", página 17, §§ 11-12 (pergunta 3); A Sentinela de 1.º de outubro de 2006, "Corajosos por meio da fé e do temor piedoso", página 18, § 11 (pergunta 4)
@@ -111,7 +111,7 @@ Resposta: Porque relatos históricos independentes confirmam a fertilidade excep
 
 @HQ 2. Por que podemos dizer que a Terra Prometida era mesmo rica em “leite e mel”, como Calebe e Josué descreveram? (Núm. 14:8; w11 1/3 15) A
 @CAMPO Sua resposta
-Resposta: (Núm. 14:8) Porque uma descoberta arqueológica confirma que a apicultura era uma indústria real na região. Arqueólogos encontraram em Israel o que um comunicado da Universidade Hebraica chamou de "o mais antigo apiário descoberto até hoje no Antigo Oriente Médio": mais de 30 colmeias, capazes de produzir "até meia tonelada de mel por ano". O comunicado concluiu que é possível que a palavra "mel" na Bíblia se refira mesmo a mel de abelha, não só a xarope de frutas.
+Resposta: (Núm. 14:8) Porque uma descoberta arqueológica confirma que a apicultura era uma indústria real na região. Arqueólogos encontraram em Israel o que um comunicado da Universidade Hebraica chamou de "o mais antigo apiário descoberto até hoje no Antigo Oriente Médio": mais de 30 colmeias, das quais, segundo a Sentinela, os eruditos calculam que "talvez se extraísse das colmeias até meia tonelada de mel por ano". O comunicado concluiu que é possível que a palavra "mel" na Bíblia se refira mesmo a mel de abelha, não só a xarope de frutas.
 
 @HQ 3. Quando o povo estava em Cades e Moisés enviou os 12 espiões, será que ainda faltava muito para eles chegarem na Terra Prometida? (w04 15/10 17 §§ 11-12) B
 @CAMPO Sua resposta
@@ -143,7 +143,7 @@ Resposta: Continuar servindo com integridade mesmo depois de décadas de espera,
 Resposta: Que ele vê e recompensa um "espírito diferente" mesmo quando a maioria falha.
 @HITEM Como esse relato está relacionado com o propósito de Jeová?
 @CAMPO Sua resposta
-Resposta: Calebe faz parte da geração que herdou de fato a Terra Prometida, cumprindo a promessa feita a Abraão.
+Resposta: Calebe está entre os poucos daquela geração que viveram para entrar na Terra Prometida, cumprindo a promessa feita a Abraão.
 @HITEM O que eu gostaria de perguntar para Calebe quando ele for ressuscitado?
 @CAMPO Sua resposta
 Resposta: O que ele sentiu, aos 40 anos, ao ver as uvas de Escol e perceber que os outros dez espiões estavam prestes a trair, com medo, o que os próprios olhos tinham visto de tão bom naquela terra.

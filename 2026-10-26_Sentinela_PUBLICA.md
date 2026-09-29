@@ -120,8 +120,8 @@ Resposta: Podem sentir que não merecem o amor de Jeová por causa de algo ruim 
 ```
 O que a pergunta quer dizer: O que fazer, na prática, quando a culpa insiste em voltar, e como um processo médico comum ilustra a recuperação espiritual.
 O que o texto nos mostra: Pense na ilustração de um homem que quebra a perna: o médico coloca o osso no lugar e recomenda exercícios pra recuperar a força aos poucos, e a pessoa precisa confiar e ter paciência até se recuperar. Do mesmo jeito, devemos confiar em Jeová, lembrando que ele deu a vida do Filho pra nos curar espiritualmente (1 João 3:19, 20), e seguir a "recomendação médica": oração, estudo e atividades espirituais (Hebreus 10:25), sem nunca desistir de Jeová nem de nós mesmos.
-Como aplicar na nossa vida: O próprio remédio pra dúvida sobre servir é continuar servindo. Qual dessas três atividades, oração, estudo ou reuniões, você mais precisa reforçar agora?
-Resposta: Devemos confiar no amor de Jeová e continuar a rotina espiritual, oração, estudo, reuniões, com paciência, sabendo que a cura emocional leva tempo.
+Como aplicar na nossa vida: O próprio remédio pra dúvida sobre servir é continuar servindo. Qual dessas três atividades, oração, estudo ou atividades espirituais, você mais precisa reforçar agora?
+Resposta: Devemos confiar no amor de Jeová e continuar a rotina espiritual, oração, estudo, atividades espirituais, com paciência, sabendo que a cura emocional leva tempo.
 ```
 
 ## A RESPONSABILIDADE DE PREGAR
@@ -157,7 +157,7 @@ Resposta: Jesus pregou com compaixão genuína e treinou seus discípulos pra co
 **15. Por que hoje a pregação é mais importante do que nunca?**
 ```
 O que a pergunta quer dizer: O que torna a pregação de hoje mais urgente do que em qualquer outra época.
-O que o texto nos mostra: Em breve vem uma "grande tribulação, como nunca ocorreu" (Mateus 24:21). Muita gente talvez aceite as boas novas nesse período justamente porque vai se lembrar da mensagem que já pregamos hoje.
+O que o texto nos mostra: Em breve vem uma "grande tribulação, como nunca ocorreu" (Mateus 24:21). Talvez mais pessoas aceitem as boas novas nesse período justamente porque vai se lembrar da mensagem que já pregamos hoje.
 Como aplicar na nossa vida: Uma conversa que parece sem resultado agora pode germinar anos depois. Você desanima fácil quando uma conversa de pregação não muda nada na hora?
 Resposta: Porque as pessoas que ouvirem hoje podem se lembrar da mensagem durante a grande tribulação e decidir servir a Jeová naquele momento.
 ```

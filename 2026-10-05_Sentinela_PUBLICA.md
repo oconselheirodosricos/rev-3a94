@@ -10,10 +10,10 @@
 @OBJETIVO Ver que mentiras Satanás tem contado sobre Jeová e Jesus, e o que podemos fazer para não ser enganados por ele.
 
 @ABERTURA Preparando a Mente e o Coração
-@ISCA Um soldado que deixa de confiar no comandante para de obedecer ordens: e isso pode custar a vida dele. Satanás sabe que a mesma coisa vale numa guerra espiritual: se ele conseguir plantar dúvida sobre se Jeová e Jesus realmente se importam com você, o resto da luta fica fácil pra ele. Como anda a sua confiança quando as coisas não saem como você esperava?
-@RESUMO Este estudo mostra que a principal arma de Satanás não é força, é mentira: fazer a gente duvidar de que Jeová e Jesus realmente se importam com a gente. Ele já usou essa tática com Eva, com os amigos de Jó e contra o próprio Jesus. Hoje ele continua com a mesma tática, escondendo o nome de Jeová através da religião falsa e usando redes sociais pra confundir padrões morais. A experiência de Shannon mostra como alguém escapou dessa armadilha pedindo ajuda de verdade. O estudo termina com dois caminhos pra fortalecer a confiança em Jeová e Jesus: meditar em relatos que mostram o amor deles, e lembrar de ajudas reais já recebidas.
+@ISCA Um soldado que deixa de confiar no comandante pode parar de obedecer ordens: e isso pode custar a vida dele. Satanás sabe que a mesma coisa vale numa guerra espiritual: se ele conseguir plantar dúvida sobre se Jeová e Jesus realmente se importam com você, o resto da luta fica fácil pra ele. Como anda a sua confiança quando as coisas não saem como você esperava?
+@RESUMO Este estudo mostra que uma das táticas de Satanás é a mentira: fazer a gente duvidar de que Jeová e Jesus realmente se importam com a gente. Ele já usou essa tática com Eva, com os amigos de Jó e contra o próprio Jesus. Hoje ele continua com a mesma tática, escondendo o nome de Jeová através da religião falsa e usando redes sociais pra confundir padrões morais. A experiência de Shannon mostra como alguém escapou dessa armadilha pedindo ajuda de verdade. O estudo termina com dois caminhos pra fortalecer a confiança em Jeová e Jesus: meditar em relatos que mostram o amor deles, e lembrar de ajudas reais já recebidas.
 @ENTENDENDO Entendendo o Estudo desta Semana
-- O que este artigo está tratando | Que a principal tática de Satanás é fazer a gente duvidar de que Jeová e Jesus se importam de verdade: e como resistir a essa tática.
+- O que este artigo está tratando | Que uma das táticas de Satanás é fazer a gente duvidar de que Jeová e Jesus se importam de verdade: e como resistir a essa tática.
 - O que aprendo sobre Jeová neste estudo | Que ele descreve o amor dele por nós como maior do que o de uma mãe por um filho (Isaías 49:15).
 - O que isso me ensina a fazer | A reconhecer quando um pensamento de dúvida sobre o cuidado de Jeová é a mesma tática usada contra Eva, e a meditar em ajudas reais já recebidas.
 @APLICACAO
@@ -32,10 +32,10 @@ O que aprendemos nesse trecho: a tática que o estudo inteiro examina, enfraquec
 **1. Que tática Satanás usa para tentar nos fazer parar de servir a Jeová?**
 
 ```
-O que a pergunta quer dizer: Qual é a principal arma que Satanás usa contra quem serve a Jeová.
-O que o texto nos mostra: A partir do momento em que decidimos servir a Jeová, Satanás e seus demônios se tornam nossos inimigos. Uma das táticas principais dele é nos fazer duvidar de que Jeová e Jesus realmente se importam com a gente (2 Coríntios 11:14; Tiago 1:6).
+O que a pergunta quer dizer: Que tática Satanás usa contra quem serve a Jeová.
+O que o texto nos mostra: A partir do momento em que decidimos servir a Jeová, Satanás e seus demônios se tornam nossos inimigos. Uma de suas táticas dele é nos fazer duvidar de que Jeová e Jesus realmente se importam com a gente (2 Coríntios 11:14; Tiago 1:6).
 Como aplicar na nossa vida: A tática funciona melhor quando não parece ataque, parece um pensamento razoável. Você já parou pra examinar se uma dúvida sobre o cuidado de Jeová era, na verdade, essa tática?
-Resposta: A tática principal de Satanás é nos fazer duvidar de que Jeová e Jesus realmente se importam com a gente, pra que a gente pare de confiar neles e de obedecê-los.
+Resposta: Uma das táticas de Satanás é nos fazer duvidar de que Jeová e Jesus realmente se importam com a gente, pra que a gente pare de confiar neles e de obedecê-los.
 ```
 
 **2. Por que é importante confiarmos em Jeová e Jesus?**
@@ -65,7 +65,7 @@ Resposta: Satanás distorceu o que Jeová tinha realmente dito, fazendo Eva acha
 ```
 O que a pergunta quer dizer: Como Satanás tentou usar o sofrimento de Jó contra a fé dele.
 O que o texto nos mostra: Satanás usou os três falsos amigos de Jó pra fazer com que ele duvidasse do amor de Jeová e achasse que Deus não dava valor à fidelidade dele (Jó 22:1-3). Apesar das provações, Jó continuou fiel ao seu Amigo Jeová (Jó 27:1, 5).
-Como aplicar na nossa vida: Às vezes a tática de Satanás vem embrulhada em conselho bem-intencionado, mas errado. Alguém já te disse algo parecido com o que os amigos de Jó disseram?
+Como aplicar na nossa vida: Às vezes a tática de Satanás vem vinda da boca de "falsos amigos". Alguém já te disse algo parecido com o que os amigos de Jó disseram?
 Resposta: Satanás queria que Jó achasse que Jeová não se importava com ele nem valorizava sua fidelidade, esperando que o sofrimento o fizesse desistir de servir a Deus.
 ```
 
@@ -81,9 +81,9 @@ Resposta: Satanás espalhou mentiras sobre o caráter de Jesus através de pesso
 **6-7. De que maneiras Satanás tentou parar o trabalho de pregação dos primeiros discípulos de Jesus?**
 
 ```
-O que a pergunta quer dizer: As duas táticas usadas contra a igreja recém-formada.
+O que a pergunta quer dizer: As duas táticas usadas contra os primeiros discípulos.
 O que o texto nos mostra: Primeiro, Satanás tentou criar dúvidas sobre a ressurreição de Jesus, espalhando a mentira de que os discípulos tinham roubado o corpo dele (Mateus 28:11-15). Depois, usou a perseguição pra assustar os seguidores (Atos 7:57-8:1; 12:1-3; 28:22). Mas a maioria continuou firme (Atos 4:18-20; 1 Pedro 5:8).
-Como aplicar na nossa vida: Quando a mentira não convenceu todo mundo, Satanás mudou de método. Ele tem mais de uma ferramenta: resistir a uma não significa que a luta acabou.
+Como aplicar na nossa vida: Primeiro veio a mentira, depois a perseguição. Ele tem mais de uma ferramenta: resistir a uma não significa que a luta acabou.
 Resposta: Satanás usou primeiro a mentira, depois o medo da perseguição, mas a maioria dos discípulos continuou firme, reconhecendo quem estava por trás das dificuldades.
 ```
 
@@ -104,7 +104,7 @@ Resposta: Satanás usa a religião falsa pra confundir quem é Jeová e quem é 
 
 ```
 O que a pergunta quer dizer: O que exatamente as pessoas perdem quando não conhecem o nome de Deus.
-O que o texto nos mostra: Satanás tenta impedir as pessoas de conhecer o nome de Deus, pra que não desenvolvam uma amizade achegada com Jeová (Jeremias 23:26, 27), e fez com que o nome fosse tirado de muitas traduções da Bíblia (Provérbios 18:10).
+O que o texto nos mostra: Satanás tenta impedir as pessoas de conhecer o nome de Deus, pra que não desenvolvam uma amizade achegada com Jeová (Jeremias 23:26, 27), e fez com que o nome de Deus, que a Bíblia compara a uma torre forte de proteção (Provérbios 18:10), fosse tirado de muitas traduções da Bíblia.
 Como aplicar na nossa vida: Pra ser amigo de alguém, você precisa saber o nome dela primeiro. Tirar o nome de Deus das traduções remove o primeiro degrau de uma amizade real.
 Resposta: Satanás tem impedido as pessoas de conhecer o nome de Jeová, o que dificulta desenvolver uma amizade achegada com ele.
 ```
@@ -131,7 +131,7 @@ Resposta: Satanás usa as redes sociais pra espalhar a ideia de que os padrões 
 
 ```
 O que a pergunta quer dizer: O risco real de se expor demais às ideias do mundo.
-O que o texto nos mostra: Dar ouvidos a essas ideias pode nos afastar de Jeová, do jeito que aconteceu com Shannon, uma irmã de 20 anos que percebeu que as amizades e os padrões que aprendia na escola estavam mudando o jeito dela pensar (Tiago 4:4). A nota "b" do artigo diz: "O nome foi mudado."
+O que o texto nos mostra: Dar ouvidos a essas ideias pode nos afastar de Jeová, do jeito que aconteceu com Shannon, uma irmã de 20 anos que percebeu que as amizades e os padrões que aprendia na escola estavam mudando o jeito dela pensar. A nota "b" do artigo diz: "O nome foi mudado."
 Como aplicar na nossa vida: A distância de Jeová quase nunca chega de uma vez, é um processo gradual. Você percebe algum sinal parecido no seu dia a dia?
 Resposta: Dar ouvidos às ideias do mundo de Satanás pode nos afastar de Jeová aos poucos, como aconteceu com Shannon.
 ```
@@ -163,7 +163,7 @@ Resposta: Precisamos escolher bem nossas amizades e nos fortalecer com estudo, r
 ```
 O que a pergunta quer dizer: Um caminho concreto pra crescer em confiança.
 O que o texto nos mostra: Estudando a Bíblia com cuidado, meditando em relatos que mostram o quanto Jeová e Jesus se importam. Jeová diz que o amor dele é maior do que o de uma mãe por um filho (Isaías 49:15), e chama quem ama o nome dele de "propriedade especial" (Malaquias 3:16, 17).
-Como aplicar na nossa vida: Isaías 49:15 usa o padrão humano de amor incondicional mais reconhecível que existe, e diz que o de Jeová é maior ainda. Que relato bíblico mostra isso pra você?
+Como aplicar na nossa vida: Isaías 49:15 usa o amor de uma mãe pelo filho, e o texto diz que o de Jeová é maior, e diz que o de Jeová é maior ainda. Que relato bíblico mostra isso pra você?
 Resposta: Podemos fortalecer essa confiança meditando em relatos bíblicos e em textos como Isaías 49:15 e Malaquias 3:16, 17, que mostram o tamanho do amor de Jeová e Jesus por cada um de nós, um amor que motiva a se achegar cada vez mais a eles.
 ```
 
@@ -171,7 +171,7 @@ Resposta: Podemos fortalecer essa confiança meditando em relatos bíblicos e em
 
 ```
 O que a pergunta quer dizer: O valor prático de olhar pra trás.
-O que o texto nos mostra: Meditar nas ajudas que já recebemos fortalece a certeza de que Jeová e Jesus vão estar do nosso lado nos desafios futuros (Provérbios 22:17).
+O que o texto nos mostra: Meditar nas ajudas que já recebemos fortalece a certeza de que Jeová e Jesus vão estar do nosso lado nos desafios futuros.
 Como aplicar na nossa vida: A confiança de Salmo 118:6 não vem de nunca ter tido problema, vem de já ter visto Jeová agir antes. Qual foi a última vez que você viu isso acontecer?
 Resposta: Lembrar de ajudas já recebidas fortalece nossa certeza de que Jeová vai continuar nos ajudando no futuro.
 ```
@@ -190,7 +190,7 @@ Resposta: Jesus garante que ninguém vai conseguir nos arrancar da mão do Pai e
 ```
 O que a pergunta quer dizer: O que vem a seguir na série.
 O que o texto nos mostra: Outras duas táticas que Satanás usa pra tentar destruir nossa amizade com Jeová: divisões dentro da congregação e oposição de pessoas de fora.
-Como aplicar na nossa vida: Resistir a uma tática não fecha o assunto: há mais frentes de ataque, tratadas uma a uma nos próximos estudos.
+Como aplicar na nossa vida: Resistir a uma tática não fecha o assunto: há mais frentes de ataque, tratadas no próximo estudo.
 Resposta: Vamos ver como Satanás usa divisões na congregação e oposição externa pra tentar destruir nossa amizade com Jeová.
 ```
 
@@ -205,7 +205,7 @@ Resposta: Ele mentiu pra Eva que Jeová era restritivo demais (Gênesis 3:1-5); 
 **Que mentiras Satanás tem contado sobre Jeová e Jesus hoje?**
 
 ```
-Resposta: Que o Pai e o Filho são a mesma pessoa (Mateus 4:10; João 4:23); que Jeová é o causador do sofrimento (Tiago 4:8); e, através das redes sociais, que os padrões morais da Bíblia estão ultrapassados (Isaías 5:20).
+Resposta: Que o Pai e o Filho são a mesma pessoa (Mateus 4:10; João 4:23); que Jeová é o causador do sofrimento; e, através das redes sociais, que os padrões morais da Bíblia estão ultrapassados (Isaías 5:20).
 ```
 
 **O que convence você de que Jeová e Jesus te amam muito e se importam com você?**
@@ -217,9 +217,9 @@ Resposta: A comparação que a Bíblia usa, um amor maior do que o de uma mãe p
 ## Imagens
 
 @IMG 11 | https://cms-imgp.jw-cdn.org/img/p/2026520/univ/art/2026520_univ_cnt_1_lg.jpg | Uma irmã jovem está no quarto dela vendo várias postagens de redes sociais. Ela vê dois homens se casando, pessoas dançando em uma boate, uma influenciadora digital ganhando várias curtidas em uma selfie, dois homens em uma competição de luta e uma política acenando para a multidão. | O mundo de Satanás lança uma enxurrada de informações para tentar nos fazer duvidar dos padrões de Jeová do que é certo e errado (Veja o parágrafo 11.)
-Comentando a imagem: uma irmã jovem vê, numa única rolagem de tela, várias cenas que representam padrões contrários aos de Jeová. Ligada ao parágrafo 11, a enxurrada de imagens diferentes mostra que o mecanismo é volume e velocidade de estímulo, não um argumento único.
+Comentando a imagem: uma irmã jovem vê, vendo várias postagens, várias cenas que representam padrões contrários aos de Jeová. Ligada ao parágrafo 11, a enxurrada de imagens diferentes mostra que o mecanismo é volume e velocidade de estímulo, não um argumento único.
 
 @IMG 14 | https://cms-imgp.jw-cdn.org/img/p/2026520/univ/art/2026520_univ_cnt_2_lg.jpg | Conjunto de imagens: a mesma irmã da imagem anterior medita durante o estudo pessoal em maneiras de se manter achegada a Jeová. 1. Ela caminha com o cachorro dela na praia. 2. Ela está em uma reunião social com amigos ao ar livre. 3. Ela participa no testemunho com o carrinho. 4. Enquanto está no hospital, ela recebe uma visita de encorajamento de dois anciãos. | Pensar no que podemos fazer para continuar tendo uma amizade forte com Jeová vai nos ajudar a vencer as táticas de Satanás (Veja o parágrafo 14.)
-Comentando a imagem: a mesma irmã em quatro cenas de hábitos concretos e relação real com pessoas. Ligada ao parágrafo 14, o contraste com a primeira imagem é proposital.
+Comentando a imagem: a mesma irmã em quatro cenas de hábitos concretos e relação real com pessoas. Ligada ao parágrafo 14, a imagem contrasta com a primeira.
 
 @CANTICO 150 | Busquem a Deus para obter livramento

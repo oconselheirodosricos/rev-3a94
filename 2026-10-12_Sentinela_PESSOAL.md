@@ -66,7 +66,7 @@ Pra Laurinha: Ele quer que a gente brigue.
 Resposta: No começo, Saul amava Davi e ficou impressionado ao ver que ele era um guerreiro habilidoso (1 Samuel 18:5). Mas, com o tempo, Saul ficou com muito ciúme, porque as pessoas gostavam mais de Davi do que dele, e por isso tentou matá-lo várias vezes (1 Samuel 18:9-11). Satanás queria muito que isso acontecesse, porque, sob orientação de Jeová, Davi já tinha sido ungido para ser o próximo rei de Israel (1 Samuel 16:13): Satanás ficaria feliz se o que Jeová tinha falado não se cumprisse.
 
 Complementar 1: O ciúme de Saul não nasceu de uma ofensa real de Davi; nasceu de uma comparação (“as pessoas gostavam mais de Davi”). Isso ensina que ciúme raramente precisa de um motivo objetivo pra crescer, só precisa de uma comparação que a pessoa decide levar a sério.
-Complementar 2: O detalhe de que Satanás "ficaria muito feliz" com o fracasso da promessa de Jeová mostra o alvo real por trás do ciúme de Saul: não era pessoal contra Davi, no fundo era uma tentativa (mesmo sem Saul perceber) de frustrar o propósito de Jeová.
+Complementar 2: O detalhe de que Satanás "iria ficar muito feliz" com o fracasso da promessa de Jeová mostra o alvo real por trás do ciúme de Saul: não era pessoal contra Davi, no fundo era uma tentativa (mesmo sem Saul perceber) de frustrar o propósito de Jeová.
 Pra Laurinha: Saul teve ciúme de Davi.
 ```
 
@@ -85,7 +85,7 @@ Pra Laurinha: Ciúme dificulta amar os irmãos.
 ```
 Resposta: Se amarmos de verdade nossos irmãos, não vamos ter ciúme deles: vamos ser amigos leais uns dos outros. Jonatã, filho de Saul, ao contrário do pai, não tinha ciúme de Davi; pelo contrário, se tornou amigo dele e disse que tinha certeza de que o propósito de Jeová se cumpriria: “Você será o rei de Israel.” Ele foi humilde, percebeu qual era a vontade de Jeová, e apoiou Davi como o próximo rei (1 Samuel 23:16, 17).
 
-Complementar 1: Jonatã tinha, humanamente falando, mais motivo pra ciúme que o próprio Saul: ele era o herdeiro natural do trono que Davi ocuparia. Mesmo assim, escolheu apoiar em vez de competir, o que mostra que a lealdade dele veio de reconhecer a vontade de Jeová, não de falta de interesse pessoal no trono.
+Complementar 1: Jonatã era filho do rei e, "ao contrário do seu pai", não tinha ciúme de Davi. Ele escolheu apoiar em vez de competir, o que mostra que a lealdade dele veio de reconhecer a vontade de Jeová, não de falta de interesse pessoal no trono.
 Complementar 2: Repare que Jonatã não só evitou o ciúme, ele foi ATIVO em apoiar Davi ("garantiu para seu amigo"). Evitar um sentimento ruim é o mínimo; a lealdade de verdade vai além e apoia ativamente quem poderia, humanamente, ser visto como rival.
 Pra Laurinha: Jonatã não teve ciúme de Davi.
 ```
@@ -167,10 +167,10 @@ Pra Laurinha: Jeová pede que a gente respeite.
 **14. Do que devemos nos lembrar sobre as pessoas que hoje se opõem ao povo de Deus?**
 
 ```
-Resposta: Algumas pessoas que antes eram opositoras do povo de Deus, com o tempo, se tornaram zelosas Testemunhas de Jeová (1 Timóteo 1:12, 13). Devemos lembrar disso quando as pessoas nos insultarem e perseguirem (Mateus 5:11: “as pessoas os insultam e perseguem, e, mentindo, dizem todo tipo de coisas más contra vocês”). Orar pedindo que as autoridades permitam que continuemos adorando livremente, orar por parentes e colegas que hoje são opositores, e ser pacientes: como disse uma irmã cujo marido se opôs por muitos anos: "O segredo é ter paciência, paciência e mais paciência."
+Resposta: Algumas pessoas que antes eram opositoras do povo de Deus, com o tempo, se tornaram zelosas Testemunhas de Jeová (1 Timóteo 1:12, 13). Devemos lembrar disso quando as pessoas nos insultarem e perseguirem (Mateus 5:11: “as pessoas os insultam e perseguem, e, mentindo, dizem todo tipo de coisas más contra vocês”). Orar pedindo que as autoridades permitam que continuemos adorando livremente, orar por parentes e colegas que hoje são opositores, e ser pacientes: como disse uma irmã que por muitos anos foi contra o seu marido ser Testemunha de Jeová: "O segredo é ter paciência, paciência e mais paciência."
 
 Complementar 1: O exemplo de 1 Timóteo 1:12, 13 é o próprio apóstolo Paulo, que antes perseguia os cristãos com violência. Lembrar disso muda a forma de encarar um opositor hoje: não como um inimigo permanente, mas como alguém que ainda pode mudar completamente de lado.
-Complementar 2: A repetição da palavra "paciência" três vezes na citação da irmã não é força de expressão, é o resumo prático de anos reais de espera: um lembrete de que essa paciência raramente é testada por dias, é testada por anos.
+Complementar 2: A repetição da palavra "paciência" três vezes na citação da irmã não é força de expressão, é o conselho de quem já esteve do lado oposto: ela mesma foi contra o marido por muitos anos, e hoje é nossa irmã.
 Pra Laurinha: Eles podem mudar um dia.
 ```
 
@@ -180,7 +180,7 @@ Pra Laurinha: Eles podem mudar um dia.
 Resposta: Porque tentar resolver as injustiças de hoje só vai nos deixar sem tempo e energia (Eclesiastes 1:15). Jeová sabe exatamente o que estamos enfrentando (Salmo 37:18), e muito em breve o Reino dele vai desfazer todo o sofrimento que Satanás e aqueles que o apoiam têm causado (1 João 3:8; Apocalipse 21:5). Enquanto isso, precisamos continuar sendo pacientes e usar nosso tempo e energia pra ajudar o maior número possível de pessoas a se tornarem amigas de Jeová.
 
 Complementar 1: Eclesiastes 1:15 ("o que é torto não pode ser endireitado") não é fatalismo, é um diagnóstico realista: o problema não é falta de esforço humano, é que a escala do problema (o próprio sistema de Satanás) está além do que qualquer esforço individual pode consertar.
-Complementar 2: Repare a troca de investimento que o parágrafo propõe: em vez de gastar energia CORRIGINDO o sistema, gastar energia TIRANDO pessoas dele através da pregação. É a mesma energia, redirecionada pro único lugar onde ela produz um resultado permanente.
+Complementar 2: Repare a troca de investimento que o parágrafo propõe: em vez de gastar energia CORRIGINDO o sistema, gastar energia TIRANDO pessoas dele através da pregação. É a mesma energia, redirecionada pra "ajudar o maior número possível de pessoas a se tornarem amigas de Jeová".
 Pra Laurinha: Só Jeová vai consertar tudo.
 ```
 

@@ -10,7 +10,7 @@
 @OBJETIVO Ver que lições aprendemos com Paulo, Onésimo e Filêmon sobre conviver em paz com os irmãos.
 
 @ABERTURA Preparando a Mente e o Coração
-@ISCA Um escravo foge, provavelmente rouba do próprio senhor, e semanas depois o apóstolo Paulo o manda de volta, não com uma ordem, com um "apelo à base do amor". A carta a Filêmon é curta, mas resolve o tipo de conflito que ainda hoje pode afetar a paz de uma congregação inteira. Como anda a sua disposição de ceder por amor, mesmo quando você tem razão?
+@ISCA Um escravo foge, provavelmente rouba do próprio senhor, em Roma se torna cristão, e o apóstolo Paulo o manda de volta, não com uma ordem, com um "apelo à base do amor". A carta a Filêmon é curta, mas resolve o tipo de conflito que ainda hoje pode afetar a paz de uma congregação inteira. Como anda a sua disposição de ceder por amor, mesmo quando você tem razão?
 @RESUMO Este estudo analisa a carta de Paulo a Filêmon pra tirar lições sobre como manter a paz na congregação quando alguém ofende ou é ofendido. Onésimo, escravo de Filêmon, fugiu pra Roma e lá se tornou cristão e amigo de Paulo; pela lei, precisava voltar, e Paulo o manda de volta com uma carta que apela ao amor de Filêmon, em vez de exigir. De Paulo aprendemos a tratar os irmãos como amigos e a elogiá-los; de Onésimo, a dar o primeiro passo pra reparar uma ofensa; de Filêmon, o que ajuda a perdoar: amor e hospitalidade. O artigo fecha lembrando que continuar suportando e perdoando uns aos outros, como Jeová faz conosco, é o que sustenta a paz na congregação.
 @ENTENDENDO Entendendo o Estudo desta Semana
 - O que este artigo está tratando | Como a carta de Paulo a Filêmon, sobre a volta do escravo fugitivo Onésimo, ensina o que cada parte de um conflito pode fazer pra recuperar e manter a paz na congregação.
@@ -31,7 +31,7 @@
 
 ```
 O que a pergunta quer dizer: De quem depende a paz que existe na congregação.
-O que o texto nos mostra: Nós damos muito valor à paz que existe entre o povo de Jeová (Isaías 32:17, 18). É Jeová quem dá essa paz, mas cada um de nós tem a responsabilidade de manter e proteger o ambiente pacífico da congregação (Romanos 12:18), como mostra o relato de Paulo, Onésimo e Filêmon.
+O que o texto nos mostra: Nós damos muito valor à paz que existe entre o povo de Deus, e essa paz nos dá uma ideia de como vai ser a vida no Paraíso (Isaías 32:17, 18). É Jeová quem dá essa paz, mas cada um de nós tem a responsabilidade de manter e proteger o ambiente pacífico da congregação (Romanos 12:18), como mostra o relato de Paulo, Onésimo e Filêmon.
 Como aplicar na nossa vida: A paz não é só um dom recebido, é algo que cada um protege ativamente. O que você tem feito, concretamente, pra proteger a paz na sua congregação?
 Resposta: Cada um de nós tem a responsabilidade de manter e proteger a paz que existe na congregação, mesmo sendo Jeová quem a dá (Romanos 12:18).
 ```
@@ -53,11 +53,11 @@ Resposta: Onésimo, escravo fugitivo de Filêmon, se tornou cristão em Roma, e 
 O que a pergunta quer dizer: O risco que Paulo via na volta de Onésimo.
 O que o texto nos mostra: Paulo sabia que a volta de Onésimo podia tirar a paz da congregação, Filêmon tinha o direito legal de puni-lo severamente, e outros podiam ter opiniões diferentes. Por isso escreveu uma carta a Filêmon e outra à congregação de Colossos (Efésios 6:21, 22; Colossenses 4:7-9).
 Como aplicar na nossa vida: Paulo se envolveu ativamente pra proteger a paz, não deixou o conflito só nas mãos das partes. Existe algum conflito ao seu redor em que uma palavra sua, no momento certo, poderia proteger a paz da congregação?
-Resposta: Paulo escreveu a carta porque temia que a volta de Onésimo tirasse a paz da congregação, e quis preparar Filêmon e a congregação pra receberem bem o ex-escravo (Efésios 6:21, 22).
+Resposta: Paulo sabia que a volta de Onésimo podia acabar tirando a paz da congregação; por isso escreveu uma carta a Filêmon e a enviou por meio de Tíquico (Efésios 6:21, 22; Colossenses 4:7-9).
 ```
 
 @IMG 3 | https://cms-imgp.jw-cdn.org/img/p/2026522/univ/art/2026522_univ_cnt_1_lg.jpg |  | Filêmon lê a carta de Paulo em voz alta na frente de algumas pessoas, incluindo Onésimo e Tíquico (Veja o parágrafo 3.)
-Comentando a imagem: Filêmon lê em voz alta a carta de Paulo, com Onésimo e Tíquico presentes, diante da congregação. Ligada ao parágrafo 3, a cena capta o momento em que o pedido de Paulo se torna público. A lição prática é que resolver um conflito às vezes precisa de transparência diante da congregação, não só conversa privada.
+Comentando a imagem: Filêmon lê em voz alta a carta de Paulo, na frente de algumas pessoas, incluindo Onésimo e Tíquico. Ligada ao parágrafo 3, a cena capta o momento em que o pedido de Paulo se torna público. A lição prática é que resolver um conflito às vezes precisa de transparência diante da congregação, não só conversa privada.
 
 ## O QUE APRENDEMOS COM PAULO
 
@@ -92,7 +92,7 @@ Resposta: O que falamos sobre uma pessoa influencia como outros a tratam, então
 ```
 O que a pergunta quer dizer: O hábito que ajudava Paulo a pensar bem das pessoas.
 O que o texto nos mostra: Paulo tinha o hábito de agradecer a Jeová pelas boas qualidades de Filêmon e de outros irmãos (Filêmon 4, 5; 1 Coríntios 1:4-7; Filipenses 1:3-5). Ele sabia das fraquezas deles, mas preferia se concentrar nas qualidades.
-Como aplicar na nossa vida: Orar agradecendo pelas qualidades de alguém facilita depois falar bem dessa pessoa. Você já tentou isso com um irmão que acha difícil de elogiar?
+Como aplicar na nossa vida: Ver as qualidades de alguém e orar para Jeová abençoá-lo facilita depois falar bem dessa pessoa. Você já tentou isso com um irmão que acha difícil de elogiar?
 Resposta: Paulo tinha o hábito de agradecer a Jeová pelas boas qualidades dos irmãos, o que o ajudava a se concentrar nelas em vez das fraquezas (Filêmon 4, 5).
 ```
 
@@ -114,9 +114,9 @@ O que aprendemos nesse trecho: como agir quando somos nós que ofendemos alguém
 **10. O que podemos aprender com o exemplo de Onésimo?**
 ```
 O que a pergunta quer dizer: O que Onésimo fez que nem sempre é fácil de fazer.
-O que o texto nos mostra: Onésimo admitiu o erro e se esforçou pra fazer as pazes: aceitou uma viagem cara de mais de 1.400 quilômetros, dispôs-se a abrir mão da liberdade e a encarar as consequências, mesmo achando que talvez tivesse motivo pra ter fugido.
+O que o texto nos mostra: Onésimo admitiu o erro e se esforçou pra fazer as pazes: aceitou uma viagem cara de mais de 1.400 quilômetros, dispôs-se a abrir mão da liberdade e a encarar as consequências, mesmo que achasse ter bons motivos pra ter fugido.
 Como aplicar na nossa vida: Onésimo agiu sem garantia de que tudo terminaria bem. Você está disposto a fazer o certo mesmo sem essa garantia?
-Resposta: Onésimo admitiu o erro e se esforçou pra reparar a situação, mesmo sem saber como Filêmon reagiria (parágrafo 10).
+Resposta: Onésimo admitiu o erro e se esforçou pra reparar a situação, disposto a encarar as consequências das suas ações (parágrafo 10).
 ```
 
 **11. O que podemos fazer para recuperar a paz quando ofendemos alguém? (Veja também as imagens.)**
@@ -163,7 +163,7 @@ Resposta: Filêmon cedia a própria casa pras reuniões da congregação, mostra
 O que a pergunta quer dizer: O efeito da hospitalidade sobre o amor.
 O que o texto nos mostra: Ser hospitaleiro ajuda a conhecer melhor os irmãos, inclusive os que parecem ter pouco em comum com a gente, o que aumenta o amor e facilita o perdão.
 Como aplicar na nossa vida: A hospitalidade que o texto recomenda é justamente com quem exige mais esforço de conexão. Existe algum irmão fora do seu círculo que você poderia convidar pra sua casa?
-Resposta: A hospitalidade nos ajuda a conhecer melhor os irmãos e a fortalecer o amor por eles (Filêmon 2).
+Resposta: A hospitalidade nos ajuda a conhecer melhor os irmãos e a fortalecer o amor por eles (parágrafo 15).
 ```
 
 @IMG 15 | https://cms-imgp.jw-cdn.org/img/p/2026522/univ/art/2026522_univ_cnt_4_lg.jpg | Conjunto de imagens: 1. Filêmon segurando a carta de Paulo. 2. Os mesmos irmãos da imagem anterior conversando de forma animada em uma recreação com outros irmãos. | Assim como Filêmon, ajude a congregação a ser unida mostrando hospitalidade (Veja o parágrafo 15.)

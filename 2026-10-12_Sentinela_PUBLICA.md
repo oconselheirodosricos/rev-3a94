@@ -80,7 +80,7 @@ Resposta: Porque ciúme dificulta mostrar amor, e sem amor pelos irmãos, Jeová
 ```
 O que a pergunta quer dizer: Como reagir de forma diferente de Saul.
 O que o texto nos mostra: Jonatã, filho de Saul, não teve ciúme de Davi; se tornou amigo dele, reconheceu a vontade de Jeová e apoiou Davi como próximo rei (1 Samuel 23:16, 17).
-Como aplicar na nossa vida: Jonatã tinha mais motivo humano pra ciúme que o próprio pai, e ainda assim apoiou Davi ativamente. Você consegue apoiar ativamente alguém que poderia, humanamente, ser visto como rival?
+Como aplicar na nossa vida: Jonatã, ao contrário do pai, não teve ciúme e apoiou Davi ativamente. Você consegue apoiar ativamente alguém que poderia, humanamente, ser visto como rival?
 Resposta: Jonatã reconheceu a vontade de Jeová e apoiou Davi com lealdade, em vez de sentir ciúme dele.
 ```
 
@@ -119,7 +119,7 @@ Resposta: A perseguição, que pode desviar nosso tempo e energia do trabalho de
 
 ```
 O que a pergunta quer dizer: Um exemplo prático de reação madura à injustiça.
-O que o texto nos mostra: Os filisteus, com inveja, taparam os poços de Isaque (Gênesis 26:12-18). Em vez de brigar pelo direito que tinha, Isaque se mudou e cavou outros poços, mantendo a paz, e Jeová o abençoou (Gênesis 26:19-25).
+O que o texto nos mostra: Os filisteus, com inveja, taparam os poços que os servos de Abraão, pai de Isaque, tinham cavado (Gênesis 26:12-18). Em vez de brigar pelo direito que tinha, Isaque se mudou e cavou outros poços, mantendo a paz, e Jeová o abençoou (Gênesis 26:19-25).
 Como aplicar na nossa vida: Isaque cedeu mesmo tendo o direito ao seu lado. Você consegue ceder numa disputa mesmo estando certo, pra manter a paz?
 Resposta: Isaque preferiu se mudar e manter a paz em vez de brigar pelos poços, mesmo tendo razão.
 ```
@@ -155,7 +155,7 @@ Resposta: Respeitando as autoridades por obediência a Jeová, mesmo discordando
 
 ```
 O que a pergunta quer dizer: Uma razão pra ter esperança em relação a opositores de hoje.
-O que o texto nos mostra: Algumas pessoas que antes se opunham se tornaram zelosas Testemunhas de Jeová (1 Timóteo 1:12, 13). Devemos orar por opositores e ser pacientes, como disse uma irmã cujo marido se opôs por anos: "O segredo é ter paciência, paciência e mais paciência."
+O que o texto nos mostra: Algumas pessoas que antes se opunham se tornaram zelosas Testemunhas de Jeová (1 Timóteo 1:12, 13). Devemos orar por opositores e ser pacientes, como disse uma irmã que por muitos anos foi contra o seu marido ser Testemunha de Jeová: "O segredo é ter paciência, paciência e mais paciência."
 Como aplicar na nossa vida: Paulo, que perseguiu cristãos com violência, é o próprio exemplo de mudança. Você trata opositores como inimigos permanentes ou como alguém que ainda pode mudar?
 Resposta: Lembrando que um opositor de hoje pode se tornar um irmão fiel amanhã, como aconteceu com o próprio apóstolo Paulo.
 ```

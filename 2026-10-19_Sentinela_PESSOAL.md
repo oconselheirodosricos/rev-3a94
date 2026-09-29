@@ -10,8 +10,8 @@
 @OBJETIVO Ver que lições aprendemos com Paulo, Onésimo e Filêmon sobre conviver em paz com os irmãos.
 
 @ABERTURA Preparando a Mente e o Coração
-@ISCA Um escravo foge, provavelmente rouba do próprio senhor, e semanas depois o apóstolo Paulo o manda de volta, não com uma ordem, com um "apelo à base do amor". A carta a Filêmon é curta, tem só uma página, mas resolve o tipo de conflito que ainda hoje pode destruir a paz de uma congregação inteira. Você já teve que escolher entre exigir seu direito e ceder por amor?
-@RESUMO Este estudo analisa um relato bíblico curto, a carta de Paulo a Filêmon, pra tirar lições sobre como manter a paz na congregação quando alguém ofende ou é ofendido. Onésimo, escravo de Filêmon, fugiu pra Roma, provavelmente depois de roubar do próprio senhor, e lá se tornou cristão e amigo de Paulo. Pela lei romana, precisava voltar; Paulo o manda de volta com uma carta que não exige, apela ao amor de Filêmon. De Paulo aprendemos a tratar os irmãos como amigos, elogiá-los, falar bem deles e manter a bondade mesmo sob pressão (Filêmon 4, 5, 7, 9, 17). De Onésimo aprendemos a dar o primeiro passo pra reparar uma ofensa, mesmo quando isso custa caro (Filêmon 10-12; Hebreus 13:16 combinado ao contexto histórico). De Filêmon aprendemos o que ajuda a perdoar: amor pelos irmãos e hospitalidade (Filêmon 2, 4, 5, 7). O artigo fecha lembrando que continuar suportando e perdoando uns aos outros liberalmente, como Jeová faz conosco, é o que sustenta a paz na congregação (Colossenses 3:13, 14; Salmo 37:11). Pra estudar bem, note que os três personagens ensinam três papéis diferentes do mesmo conflito: quem intervém, quem ofende, e quem foi ofendido, e todos têm uma responsabilidade na paz final.
+@ISCA Um escravo foge, provavelmente rouba do próprio senhor, em Roma se torna cristão, e o apóstolo Paulo o manda de volta, não com uma ordem, com um "apelo à base do amor". A carta a Filêmon é curta, mas resolve o tipo de conflito que ainda hoje pode destruir a paz de uma congregação inteira. Você já teve que escolher entre exigir seu direito e ceder por amor?
+@RESUMO Este estudo analisa um relato bíblico curto, a carta de Paulo a Filêmon, pra tirar lições sobre como manter a paz na congregação quando alguém ofende ou é ofendido. Onésimo, escravo de Filêmon, fugiu pra Roma, provavelmente depois de roubar do próprio senhor, e lá se tornou cristão e amigo de Paulo. Pela lei romana, precisava voltar; Paulo o manda de volta com uma carta que não exige, apela ao amor de Filêmon. De Paulo aprendemos a tratar os irmãos como amigos, elogiá-los, falar bem deles e manter a bondade mesmo sob pressão (Filêmon 4, 5, 7, 9, 17). De Onésimo aprendemos a admitir o erro e se esforçar para fazer as pazes: ele aceitou fazer uma viagem cara e muito cansativa de mais de 1.400 quilômetros para voltar a Filêmon (parágrafo 10; Filêmon 12). De Filêmon aprendemos o que ajuda a perdoar: amor pelos irmãos e hospitalidade (Filêmon 2, 4, 5, 7). O artigo fecha lembrando que continuar suportando e perdoando uns aos outros liberalmente, como Jeová faz conosco, é o que sustenta a paz na congregação (Colossenses 3:13, 14; Salmo 37:11). Pra estudar bem, note que os três personagens ensinam três papéis diferentes do mesmo conflito: quem intervém, quem ofende, e quem foi ofendido, e todos têm uma responsabilidade na paz final.
 @ENTENDENDO Entendendo o Estudo desta Semana
 - O que este artigo está tratando | Como a carta de Paulo a Filêmon, sobre a volta do escravo fugitivo Onésimo, ensina o que cada parte de um conflito pode fazer pra recuperar e manter a paz na congregação (parágrafos 1 a 18).
 - O que aprendo sobre Jeová neste estudo | Que ele é "razoável" e não espera que seus servos sejam perfeitos, se concentra nas nossas qualidades, e por isso continua nos tratando com bondade imerecida e misericórdia, mesmo sabendo das nossas limitações (Salmo 103:13, 14; 130:3).
@@ -47,7 +47,7 @@ O que vemos aqui: o pano de fundo de toda a carta, um escravo fugitivo, um senho
 ```
 Resposta: Filêmon era um irmão na congregação de Colossos, conhecido por ter forte fé e ser muito amoroso. Ele tinha um escravo não cristão chamado Onésimo, que fugiu pra Roma, provavelmente depois de roubar dele (Filêmon 18). Em Roma, Onésimo se tornou cristão e ficou amigo de Paulo (Colossenses 4:9). Mas pela lei romana, precisava voltar pro seu senhor, então Paulo o enviou de volta com uma carta (Filêmon 12, 13). Na carta, lida em Filêmon 8, 9, 17, Paulo incentivou Filêmon a receber Onésimo de volta com base no amor de Filêmon por Cristo e pelos irmãos, não em ordem de autoridade.
 
-Complementar 1: Repare que Paulo "tinha em Cristo toda a liberdade para mandar" Filêmon fazer o que era correto (Filêmon 8), mas escolheu não usar essa autoridade. Ele preferiu o apelo ao amor, mesmo tendo o direito de simplesmente ordenar.
+Complementar 1: Repare que Paulo diz que tinha, em Cristo, toda liberdade para mandar Filêmon fazer o que é correto (Filêmon 8), mas escolheu não usar essa autoridade. Ele preferiu o apelo ao amor, mesmo tendo o direito de simplesmente ordenar.
 
 Complementar 2: O detalhe de que Onésimo "provavelmente" roubou Filêmon antes de fugir (a Bíblia não afirma isso categoricamente, é inferência do contexto de Filêmon 18) mostra que a situação de Filêmon era pior do que só "perder um escravo", ele tinha motivo real pra estar magoado, o que torna o pedido de Paulo ainda mais delicado.
 
@@ -66,7 +66,7 @@ Pra Laurinha: Que acabasse a paz.
 ```
 
 @IMG 3 | https://cms-imgp.jw-cdn.org/img/p/2026522/univ/art/2026522_univ_cnt_1_lg.jpg |  | Filêmon lê a carta de Paulo em voz alta na frente de algumas pessoas, incluindo Onésimo e Tíquico (Veja o parágrafo 3.)
-Comentando a imagem: Filêmon lê em voz alta a carta de Paulo, com Onésimo e Tíquico presentes, provavelmente diante da congregação que se reunia na própria casa dele. Ligada ao parágrafo 3, a cena capta o momento de maior tensão do relato: o instante em que o pedido de Paulo se torna público, na frente de quem foi ofendido e de quem ofendeu ao mesmo tempo. A lição prática é que resolver um conflito às vezes precisa acontecer diante da congregação, com transparência, não só em conversas privadas.
+Comentando a imagem: Filêmon lê em voz alta a carta de Paulo, na frente de algumas pessoas, incluindo Onésimo e Tíquico. Ligada ao parágrafo 3, a cena capta o momento do relato o instante em que o pedido de Paulo se torna público, na frente de quem foi ofendido e de quem ofendeu ao mesmo tempo. A lição prática é que resolver um conflito às vezes precisa acontecer diante da congregação, com transparência, não só em conversas privadas.
 
 ## O QUE APRENDEMOS COM PAULO
 
@@ -77,7 +77,7 @@ O que aprendemos nesse trecho: quatro atitudes concretas de Paulo que ajudam a c
 ```
 Resposta: Podem seguir o exemplo de Paulo, que tratava os irmãos como amigos, não como se fosse dono deles (Filêmon 17; 2 Coríntios 1:24): pra Paulo, Filêmon era colaborador e amigo, e isso deu um bom exemplo de como tratar Onésimo, agora cristão. Anciãos que tratam os irmãos como amigos criam um ambiente de paz na congregação, porque, sendo pastores amorosos, não agem como donos do rebanho de Deus (1 Pedro 5:1-3); em vez disso, passam tempo com os irmãos, dão valor a eles, escutam e apoiam em tempos de necessidade.
 
-Complementar 1: Repare no contraste que o próprio texto de 2 Coríntios 1:24 traz: Paulo tinha autoridade apostólica real sobre Filêmon, e mesmo assim escolheu não "mandar" nele como dono manda em propriedade. Autoridade genuína, no padrão de Paulo, nunca vira posse sobre pessoas.
+Complementar 1: Paulo tinha liberdade para mandar Filêmon fazer o que é correto (Filêmon 8). O artigo diz que ele "não achava que podia mandar em Filêmon, como se fosse dono dele".
 
 Complementar 2: A aplicação aos anciãos não é genérica, é específica: "passam tempo com os irmãos", "escutam e apoiam". São ações concretas e mensuráveis, não só uma atitude interna de bondade.
 
@@ -111,9 +111,9 @@ Pra Laurinha: Nossas palavras mudam como tratam alguém.
 ```
 Resposta: Paulo tinha o hábito de agradecer a Jeová pelas boas qualidades de Filêmon (Filêmon 4, 5), e fazia o mesmo com outros irmãos (1 Coríntios 1:4-7; Filipenses 1:3-5; Colossenses 1:3, 4; 1 Tessalonicenses 1:2, 3). Ele sabia das fraquezas dos irmãos, mas preferia se concentrar nas qualidades deles, sempre agradecendo a Jeová pelos amigos que tinha. Quem tem dificuldade de falar bem das pessoas pode se esforçar pra ter o hábito de ver as qualidades delas e orar pedindo que Jeová as abençoe, isso facilita falar coisas boas sobre elas depois.
 
-Complementar 1: Repare que a lista de referências (cinco cartas diferentes) mostra que esse não era um hábito ocasional de Paulo com Filêmon especificamente, era um padrão repetido em praticamente toda carta que ele escrevia, o que sugere disciplina deliberada, não sentimento espontâneo só quando dava vontade.
+Complementar 1: Repare que a lista de referências (cinco cartas diferentes) mostra que esse não era um hábito ocasional de Paulo com Filêmon especificamente, ele fazia o mesmo com outros irmãos.
 
-Complementar 2: A ordem prática sugerida é específica: primeiro orar agradecendo pelas qualidades da pessoa, e SÓ DEPOIS vem mais fácil falar bem dela. A oração funciona como treino da mente antes da conversa.
+Complementar 2: A ordem prática sugerida é específica: ver as qualidades da pessoa e orar para Jeová abençoá-la, e assim fica mais fácil falar bem dela. A oração funciona como treino da mente antes da conversa.
 
 Pra Laurinha: Ver as coisas boas dos irmãos.
 ```
@@ -153,13 +153,13 @@ Resposta: Se você ofender alguém, dê o primeiro passo pra recuperar a paz (Ma
 
 Complementar 1: Repare a lista negativa que o parágrafo dá: "não fique se justificando nem colocando a culpa em outros". É um alerta específico contra o tipo de pedido de desculpas que, na prática, é uma autodefesa disfarçada, algo fácil de fazer sem perceber.
 
-Complementar 2: A frase "geralmente é o caminho mais rápido para recuperar a paz" reconhece, com honestidade, que pedir desculpas nem sempre resolve tudo na hora, mas ainda assim é apresentado como o caminho mais eficiente disponível.
+Complementar 2: A frase "geralmente é o caminho mais rápido para recuperar a paz" reconhece, com honestidade, que pedir desculpas nem sempre resolve tudo na hora, mas ainda assim é geralmente o caminho mais rápido para recuperar a paz.
 
 Pra Laurinha: Pedir desculpas de coração.
 ```
 
 @IMG 11 | https://cms-imgp.jw-cdn.org/img/p/2026522/univ/art/2026522_univ_cnt_3_lg.jpg | Conjunto de imagens: 1. Onésimo. 2. Dois irmãos sentados no banco de um parque. Um deles está pedindo desculpas ao outro de forma sincera. | Assim como Onésimo, seja humilde e faça seu melhor para ter paz com os irmãos (Veja o parágrafo 11.)
-Comentando a imagem: no primeiro quadro, um retrato de Onésimo; no segundo, dois irmãos contemporâneos num banco de parque, um pedindo desculpas sinceras ao outro. Ligada ao parágrafo 11, a sequência aproxima o relato bíblico de uma cena bem atual e comum. A lição prática é que o "primeiro passo" de Onésimo, feito há dois mil anos numa viagem de 1.400 quilômetros, tem o mesmo espírito de uma conversa simples e humilde num banco de parque hoje.
+Comentando a imagem: no primeiro quadro, um retrato de Onésimo; no segundo, dois irmãos contemporâneos num banco de parque, um pedindo desculpas sinceras ao outro. Ligada ao parágrafo 11, a sequência aproxima o relato bíblico de uma cena bem atual e comum. A lição prática é que o "primeiro passo" de Onésimo, feito há dois mil anos numa viagem de mais de 1.400 quilômetros, tem o mesmo espírito de uma conversa simples e humilde num banco de parque hoje.
 
 ## O QUE APRENDEMOS COM FILÊMON
 
@@ -169,7 +169,7 @@ O que aprendemos nesse trecho: as qualidades que ajudam a perdoar quando somos n
 ```
 Resposta: O exemplo de Filêmon ensina como manter a paz quando alguém nos ofende. A Bíblia não diz explicitamente se Filêmon perdoou Onésimo e o recebeu de volta com bondade, mas Paulo acreditava que ele faria isso (Filêmon 17, 21), porque sabia que Filêmon tinha qualidades que o ajudariam a perdoar.
 
-Complementar 1: Repare que Paulo não tinha certeza absoluta do resultado, ele "acreditava" que Filêmon perdoaria, com base no caráter dele, não numa garantia. Isso mostra confiança genuína no caráter espiritual de um irmão, não presunção vazia.
+Complementar 1: Repare que Paulo estava confiante, com base no caráter de Filêmon: “sei que fará ainda mais do que as coisas que digo” (Filêmon 21). Isso mostra confiança genuína no caráter espiritual de um irmão, não presunção vazia.
 
 Complementar 2: O fato de a Bíblia não revelar o desfecho explícito é, de certa forma, parte da lição: o relato nos convida a refletir sobre nós mesmos, "o que EU faria no lugar de Filêmon?", em vez de só ler um final pronto.
 
@@ -238,9 +238,9 @@ Pra Laurinha: Ter paciência com os irmãos.
 ```
 Resposta: Jeová dá muito valor a tudo o que fazemos pra ajudar nossa congregação a ter paz. Por isso, devemos procurar oportunidades todos os dias: continuar sendo bondosos no que falamos e como falamos, pedir desculpas, se esforçar pra reparar o dano quando ofendermos alguém, e desenvolver um forte amor pelos irmãos, o tipo de amor que ajuda a perdoar de coração. Assim, contribuímos pra um ambiente de paz na congregação e estamos entre os mansos que "possuirão a terra E terão grande alegria na abundância de paz" (Salmo 37:11).
 
-Complementar 1: Repare que a lista final ("continuar sendo bondoso", "pedir desculpas", "reparar o dano", "desenvolver amor") resume exatamente as quatro lições dos três personagens do relato, não é uma conclusão genérica, é um resumo prático amarrado ao estudo inteiro.
+Complementar 1: Repare que a lista final ("continuar sendo bondoso", "pedir desculpas", "reparar o dano", "desenvolver amor") retoma as lições do estudo, não é uma conclusão genérica, é um resumo prático amarrado ao estudo inteiro.
 
-Complementar 2: A promessa final de Salmo 37:11 conecta o esforço diário e pequeno (uma palavra bondosa, um pedido de desculpas) a uma recompensa permanente ("para sempre"), o tipo de conexão que dá peso eterno a decisões que parecem pequenas no dia a dia.
+Complementar 2: A promessa final de Salmo 37:11 conecta o esforço diário e pequeno (uma palavra bondosa, um pedido de desculpas) à paz que os mansos vão ter: “terão grande alegria na abundância de paz”.
 
 Pra Laurinha: Ajudar a ter paz todo dia.
 ```
@@ -250,7 +250,7 @@ Pra Laurinha: Ajudar a ter paz todo dia.
 **o apóstolo Paulo?**
 
 ```
-Resposta: Aprendi a tratar os irmãos como amigos, não como se eu tivesse autoridade sobre eles (Filêmon 17); a elogiá-los sinceramente, porque todo mundo precisa reconhecer o próprio valor (Provérbios 12:25); a falar bem deles, porque isso influencia como outros os tratam (Filêmon 10-12); e a manter a bondade mesmo quando eu estiver estressado ou passando por dificuldade (Filêmon 1, 9).
+Resposta: Aprendi a tratar os irmãos como amigos, não como se eu fosse dono deles (Filêmon 17; 2 Coríntios 1:24); a elogiá-los sinceramente, porque todo mundo precisa reconhecer o próprio valor (Provérbios 12:25); a falar bem deles, porque isso influencia como outros os tratam (Filêmon 10-12); e a manter a bondade mesmo quando eu estiver estressado ou passando por dificuldade (Filêmon 1, 9).
 ```
 
 **Onésimo?**

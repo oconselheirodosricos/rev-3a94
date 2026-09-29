@@ -12,11 +12,11 @@
 @ABERTURA Preparando a Mente e o Coração
 @ISCA Um estudante da Bíblia pode aprender datas, doutrinas e até decorar textos, e mesmo assim nunca chegar a amar a Jeová de verdade. José resistiu a um convite pra pecar não porque tinha decorado uma regra, mas porque conhecia Jeová bem o bastante pra saber o que magoava o coração dele. Você conhece Jeová a ponto de saber o que magoa ele, ou só conhece fatos sobre ele?
 @RESUMO
-Este estudo responde a uma pergunta que todo instrutor bíblico já se fez: por que alguns estudantes fazem progresso de verdade e outros param no meio do caminho? A resposta que o artigo dá é direta: conhecimento de fatos não é o mesmo que conhecer a Jeová. Jeová quer que “todo tipo de pessoas sejam salvas e venham a ter um conhecimento exato da verdade” (1 Timóteo 2:3, 4), e essa palavra, “conhecimento exato”, no idioma original não descreve um conjunto de dados, descreve um conhecimento "que causa um efeito profundo em uma pessoa" (frase de um estudioso da Bíblia, citada pelo próprio artigo). O estudo caminha em três etapas: primeiro, por que o estudante precisa conhecer bem a Jeová; depois, como ajudá-lo a conhecer a personalidade dele, não só os ensinos; e por fim, como ensiná-lo a usar o que já aprendeu nas decisões reais da vida. O exemplo de José, que resistiu à esposa de Potifar porque já conhecia o ponto de vista de Jeová sobre o casamento, mostra o alvo final: não é o estudante decorar respostas certas, é o estudante conhecer Jeová o bastante pra tomar a decisão certa sozinho. Pra estudar bem, escolha um estudante bíblico específico (ou lembre de um que você já teve) e, parágrafo por parágrafo, pergunte-se: isto que estou lendo, ele já sabe? E, mais importante, ele já sente isso?
+Este estudo mostra que conhecimento de fatos não é o mesmo que conhecer a Jeová. Jeová quer que “todo tipo de pessoas sejam salvas e venham a ter um conhecimento exato da verdade” (1 Timóteo 2:3, 4), e essa palavra, “conhecimento exato”, no idioma original não se refere apenas a um conjunto de fatos, descreve um conhecimento "que causa um efeito profundo em uma pessoa" (frase de um estudioso da Bíblia, citada pelo próprio artigo). O estudo caminha em três etapas: primeiro, por que o estudante precisa conhecer bem a Jeová; depois, como ajudá-lo a conhecer a personalidade dele, não só os ensinos; e por fim, como ensiná-lo a usar o que já aprendeu nas decisões reais da vida. O exemplo de José, que resistiu à esposa de Potifar porque já conhecia o ponto de vista de Jeová sobre o casamento, mostra o alvo final: não é o estudante decorar respostas certas, é o estudante conhecer Jeová o bastante pra tomar a decisão certa sozinho. Pra estudar bem, escolha um estudante bíblico específico (ou lembre de um que você já teve) e, parágrafo por parágrafo, pergunte-se: isto que estou lendo, ele já sabe? E, mais importante, ele já sente isso?
 @ENTENDENDO Entendendo o Estudo desta Semana
 - O que este artigo está tratando | A diferença entre um estudante que aprende fatos sobre Jeová e um estudante que conhece Jeová de verdade, e como o instrutor bíblico ajuda a fazer essa diferença acontecer, do primeiro contato até as decisões mais difíceis da vida do estudante.
 - O que aprendo sobre Jeová neste estudo | Que ele merece todo o crédito quando um estudante faz progresso, porque é ele quem ajuda a pessoa a crescer espiritualmente (1 Coríntios 3:5-9); e que ele deseja, de verdade, que “todo tipo de pessoas” chegue a esse conhecimento profundo (1 Timóteo 2:3, 4).
-- O que isso me ensina a fazer | A nunca confundir estudante que responde certo com estudante que conhece Jeová; a fazer perguntas que revelem se o conhecimento já virou convicção, do jeito que Jeová fez com Jó; e a deixar claro, sempre, que quem merece o louvor pelo progresso do estudante é Jeová, não eu.
+- O que isso me ensina a fazer | A nunca confundir estudante que responde certo com estudante que conhece Jeová; a fazer perguntas que ajudem o estudante a aprender mais sobre Jeová, do jeito que Jeová fez com Jó; e a deixar claro, sempre, que quem merece o louvor pelo progresso do estudante é Jeová, não eu.
 @APLICACAO
 - Na relação com Jeová | Perguntar a mim mesmo, do mesmo jeito que um bom instrutor pergunta ao estudante: eu conheço Jeová o bastante pra saber o que agrada e o que magoa ele, ou só conheço fatos sobre ele?
 - Na vida | Antes de uma decisão difícil, fazer o que José fez: lembrar o que já sei sobre o ponto de vista de Jeová, em vez de decidir só pela pressão do momento (Gênesis 39:7-9).
@@ -24,7 +24,7 @@ Este estudo responde a uma pergunta que todo instrutor bíblico já se fez: por 
 - Na congregação | Elogiar quem ensina bem, mas sempre devolver o crédito a Jeová.
 - Na pregação | Ao dirigir um estudo, medir o progresso não só pelo que a pessoa sabe responder, mas pelo que ela já sente sobre Jeová e já mudou na vida dela.
 @ORACAO
-Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pelo privilégio de ajudar alguém a conhecê-lo (1 João 5:20); pedir sabedoria pra fazer as perguntas certas com um estudante, do jeito que ele fez com Jó; pedir ajuda pra nunca aceitar o crédito que só pertence a ele quando um estudante progride; e pedir, por alguém que você está ensinando agora, que o conhecimento dessa pessoa vire amor de verdade, não só fato decorado. Cada um pode meditar: o que eu sei sobre Jeová que ainda não virou decisão na minha própria vida?
+Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pelo privilégio de ajudar alguém a conhecê-lo; pedir sabedoria pra fazer as perguntas certas com um estudante, do jeito que ele fez com Jó; pedir ajuda pra nunca aceitar o crédito que só pertence a ele quando um estudante progride; e pedir, por alguém que você está ensinando agora, que o conhecimento dessa pessoa vire amor de verdade, não só fato decorado. Cada um pode meditar: o que eu sei sobre Jeová que ainda não virou decisão na minha própria vida?
 @FIM-ABERTURA
 
 ---
@@ -42,8 +42,8 @@ Resposta: Fico feliz de verdade, mas o crédito é de Jeová, já que é ele que
 
 ```
 O que a pergunta quer dizer: O que Jeová realmente quer que aconteça na vida de um estudante da Bíblia.
-O que o texto nos mostra: Ele “deseja que todo tipo de pessoas sejam salvas e venham a ter um conhecimento exato da verdade” (1 Timóteo 2:3, 4). “Conhecimento exato” não é um amontoado de fatos: no idioma original, a palavra se refere a um conhecimento "que causa um efeito profundo em uma pessoa" (frase de um estudioso da Bíblia, citada pelo próprio artigo), motivando mudanças de vida e abrindo caminho pra esperança de vida eterna (João 17:3).
-Como aplicar na nossa vida: Dá pra saber a data de uma batalha bíblica de cor e nunca ter mudado de vida por causa dela; dá pra saber uma única promessa e ela transformar como a pessoa encara a própria morte. O alvo nunca é a quantidade de fatos, é a profundidade do efeito.
+O que o texto nos mostra: Ele “deseja que todo tipo de pessoas sejam salvas e venham a ter um conhecimento exato da verdade” (1 Timóteo 2:3, 4). “Conhecimento exato” não se refere apenas a um conjunto de fatos: no idioma original, a palavra se refere a um conhecimento "que causa um efeito profundo em uma pessoa" (frase de um estudioso da Bíblia, citada pelo próprio artigo), motivando mudanças de vida e abrindo caminho pra esperança de vida eterna (João 17:3).
+Como aplicar na nossa vida: Dá pra saber a data de uma batalha bíblica de cor e nunca ter mudado de vida por causa dela; dá pra saber uma única promessa e ela transformar como a pessoa encara a própria morte. O alvo não é só a quantidade de fatos, é a profundidade do efeito.
 Resposta: Que todo tipo de pessoas venha a ter um conhecimento exato da verdade, o tipo de conhecimento que causa um efeito profundo na vida (1 Timóteo 2:3, 4).
 ```
 
@@ -58,7 +58,7 @@ Resposta: Por que os estudantes precisam conhecer bem a Jeová, como ajudá-los 
 
 ## AJUDE SEU ESTUDANTE A CONHECER BEM A JEOVÁ
 
-O que vemos aqui: conhecer fatos sobre Jeová não é a mesma coisa que conhecê-lo de verdade, e é esse conhecimento profundo, não um conjunto de dados, que leva um estudante da Bíblia a amar e obedecer a Jeová de coração.
+O que vemos aqui: conhecer fatos sobre Jeová não é a mesma coisa que conhecê-lo de verdade, e é esse conhecimento profundo, não apenas um conjunto de fatos, que leva um estudante da Bíblia a amar e obedecer a Jeová de coração.
 
 **4. De acordo com Marcos 12:30, qual é o nosso principal objetivo ao dirigir um estudo bíblico?**
 
@@ -92,7 +92,7 @@ Resposta: Vai conseguir tomar boas decisões em qualquer situação, porque apre
 ```
 O que a pergunta quer dizer: O que estava por trás da coragem de José diante da esposa de Potifar.
 O que o texto nos mostra: Conhecer bem a Jeová. Desde criança, José tinha aprendido as histórias de Adão e Eva e de Abraão e Sara, e com base nelas entendia como Jeová via o casamento e as relações sexuais. Por isso respondeu: “como eu poderia cometer essa grande maldade e realmente pecar contra Deus?” (Gênesis 39:7-9).
-Como aplicar na nossa vida: A decisão certa saiu na hora exata porque o conhecimento já estava internalizado desde a infância. Isso é um alerta contra deixar o estudo bíblico de crianças pra depois: a hora da prova raramente avisa antes.
+Como aplicar na nossa vida: A decisão certa se manteve dia após dia porque o conhecimento já estava internalizado desde a infância. Isso é um alerta contra deixar o estudo bíblico de crianças pra depois: a hora da prova raramente avisa antes.
 Resposta: Conhecer bem a Jeová desde criança, o suficiente pra reconhecer o pecado como uma ofensa direta contra Deus, não só contra uma regra (Gênesis 39:7-9).
 ```
 
@@ -118,14 +118,14 @@ O livro *Seja Feliz para Sempre!* tem muitas perguntas que ajudam os estudantes 
 O que a pergunta quer dizer: Como ler a Bíblia de um jeito que revela a personalidade de Jeová, e um exemplo prático disso.
 O que o texto nos mostra: (a) Se perguntar, a cada relato, "Por que Jeová incluiu esse relato em sua Palavra? Que qualidades de Jeová eu consigo aprender?" (pergunta sugerida pelo próprio artigo). Tiago fez isso com Jó, destacando não só a perseverança dele, mas também qualidades de Jeová, como a compaixão e a misericórdia (Tiago 5:11). (b) Com Daniel na cova dos leões, o estudante pode se perguntar "Por que Jeová salvou Daniel? De acordo com esse relato, o que deixa Jeová feliz?" (Daniel 6:10, 22), e "O que aconteceu com os homens que acusaram Daniel? Com base nessa história, o que desagrada a Jeová?" (Daniel 6:4, 5, 24). A nota "a" do artigo diz: "Na lição 5 do livro Seja Feliz para Sempre!, no quadro "Tente o Seguinte", o estudante é incentivado a ter este alvo: "Começar a ler a Bíblia todos os dias usando o quadro ‘Comece sua leitura da Bíblia’."".
 Como aplicar na nossa vida: A personalidade de Jeová não precisa ser adicionada ao relato bíblico, ela já está lá dentro; a pergunta certa só revela o que já estava escrito. Da próxima vez que ler um relato, qual das duas perguntas você vai fazer primeiro?
-Resposta: (a) Perguntar a cada relato o que ele ensina sobre Jeová (Tiago 5:11). (b) O relato de Daniel na cova dos leões mostra que salvar quem confia nele agrada Jeová, e que a inveja calculada dos acusadores dele o desagrada (Daniel 6:4, 5, 10, 22, 24).
+Resposta: (a) Perguntar a cada relato o que ele ensina sobre Jeová (Tiago 5:11). (b) O relato de Daniel na cova dos leões mostra que salvar quem confia nele agrada Jeová, e mostra os acusadores, que procuraram um motivo para acusar Daniel usando a lei do seu Deus (Daniel 6:4, 5, 10, 22, 24).
 ```
 
 **11. Como podemos ajudar nosso estudante a ver que o estudo da Bíblia é um presente de Jeová?**
 
 ```
 O que a pergunta quer dizer: Como manter claro, pro estudante, de onde vem o mérito pelo que ele está aprendendo.
-O que o texto nos mostra: Deixando claro, sempre, que quem merece o louvor é Jeová, “seu Grandioso Instrutor” (Isaías 30:20), mesmo quando o estudante elogia o instrutor humano por ensinar bem. Isso não está errado, mas o instrutor precisa redirecionar o crédito pra Jeová sempre que puder.
+O que o texto nos mostra: Deixando claro, sempre, que quem merece o louvor é Jeová, “seu Grandioso Instrutor” (Isaías 30:20), mesmo quando o estudante elogia o instrutor humano por ensinar bem. Isso não está errado, mas o instrutor precisa deixar sempre claro que é Jeová que merece todo o louvor.
 Como aplicar na nossa vida: Se o estudante associa o crescimento espiritual à pessoa do instrutor, e não a Jeová, o vínculo mais importante nunca se firma direito. Você já redirecionou um elogio assim esta semana?
 Resposta: Deixando claro que quem merece o louvor pelo que o estudante aprende é Jeová, “seu Grandioso Instrutor” (Isaías 30:20).
 ```
@@ -156,8 +156,8 @@ Resposta: Pensar em como Jeová vê aquele irmão, o sacrifício que fez por ele
 
 ```
 O que a pergunta quer dizer: Como decidir bem numa escolha difícil da vida, e um exemplo real de como ajudar alguém nisso.
-O que o texto nos mostra: (a) Se perguntando, com base no que já pesquisou e aprendeu, que decisão agradaria a Jeová, do jeito que Jesus vivia: “ele não me deixou só, porque faço sempre o que lhe agrada.” (João 8:29). (b) Uma estudante no Chile foi pressionada pela família a aceitar um emprego bom, mas que a faria perder reuniões. A instrutora, Marianne, não decidiu por ela: incentivou a meditar em como Jeová se sentiria e a orar prestando atenção na resposta dele. A estudante recusou o emprego e logo achou outro que não atrapalhava as reuniões.
-Como aplicar na nossa vida: O benefício não foi só a decisão certa; foi o próprio ato de consultar Jeová em oração que fortaleceu a amizade da estudante com ele. Numa decisão sua pendente, você já perguntou o que agradaria a Jeová?
+O que o texto nos mostra: (a) Se perguntando, com base no que já pesquisou e aprendeu, que decisão agradaria a Jeová, do jeito que Jesus vivia: “ele não me deixou só, porque faço sempre o que lhe agrada.” (João 8:29). (b) Uma estudante no Chile foi pressionada pela família a aceitar um emprego bom, mas que a faria perder algumas reuniões. A instrutora, Marianne, não decidiu por ela: incentivou a meditar em como Jeová se sentiria e a orar prestando atenção na resposta dele. A estudante recusou o emprego e logo achou outro que não atrapalhava as reuniões.
+Como aplicar na nossa vida: O benefício não foi só a decisão certa; foi meditar no que ela já tinha aprendido que acabou fortalecendo a amizade da estudante com ele. Numa decisão sua pendente, você já perguntou o que agradaria a Jeová?
 Resposta: (a) Se perguntando o que agradaria a Jeová, com base no que já aprendeu, do jeito que Jesus sempre fazia o que agradava ao Pai (João 8:29). (b) Incentivando a estudante a meditar e orar sobre a decisão, em vez de decidir por ela.
 ```
 
@@ -188,7 +188,7 @@ Resposta: Felicidade real já agora (Salmo 25:12-15) e vida eterna no futuro (1 
 **Por que um estudante da Bíblia precisa conhecer bem a Jeová?**
 
 ```
-Resposta: Porque só conhecimento profundo, não um conjunto de fatos, causa o efeito que muda a vida da pessoa (1 Timóteo 2:3, 4) e abre caminho pra ela amar a Jeová de todo o coração, alma, mente e força, o maior mandamento (Marcos 12:30). É esse conhecimento que motivou José a recusar o pecado com a esposa de Potifar (Gênesis 39:7-9) e que, no fim, é a própria definição bíblica de vida eterna: “conheçam a ti, o único Deus verdadeiro” (João 17:3).
+Resposta: Porque só conhecimento profundo, não apenas um conjunto de fatos, causa o efeito que muda a vida da pessoa (1 Timóteo 2:3, 4) e abre caminho pra ela amar a Jeová de todo o coração, alma, mente e força, o maior mandamento (Marcos 12:30). É esse conhecimento que motivou José a recusar o pecado com a esposa de Potifar (Gênesis 39:7-9) e que, no fim, é a própria definição bíblica de vida eterna: “conheçam a ti, o único Deus verdadeiro” (João 17:3).
 ```
 
 **Como podemos ajudar um estudante a conhecer a personalidade de Jeová?**

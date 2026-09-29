@@ -33,9 +33,9 @@ Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pel
 ```
 Resposta: Cheio de espírito santo, Zacarias respondeu à pergunta que parentes e vizinhos faziam sobre o recém-nascido João, "O que será que esse menino vai ser?" (Lucas 1:57-66), dizendo que João ajudaria as pessoas a se arrepender e a se preparar pro Messias que logo viria (Amós 3:7; Lucas 1:67-79). Mas ele foi além de descrever o filho: profetizou algo que tem a ver com cada um de nós hoje, sobre três coisas que devemos dar valor: o presente da salvação, o privilégio de servir a Jeová, e a responsabilidade de pregar. A nota "a" do artigo diz: "Assista ao trecho que mostra a profecia de Zacarias relacionada a Lucas 1:67 com o título “O Nome Dele É João”, do vídeo A História e o Ministério de Jesus: Episódio 1."
 
-Complementar 1: Repare que a profecia não veio durante o serviço de Zacarias como sacerdote no templo, veio dele como pai, cheio de emoção, no dia da circuncisão do próprio filho (Lucas 1:59-67). Jeová usa momentos familiares comuns pra revelar verdades enormes, não só ocasiões formais.
+Complementar 1: Repare que a profecia não veio durante o serviço de Zacarias como sacerdote no templo, veio dele como pai, “cheio de espírito santo”, depois que o povo perguntava o que o menino ia ser (Lucas 1:66, 67). Jeová usa momentos familiares comuns pra revelar verdades enormes, não só ocasiões formais.
 
-Complementar 2: Zacarias tinha ficado mudo durante toda a gravidez de Elisabete, por causa da dúvida que expressou quando o anjo Gabriel lhe deu a notícia (Lucas 1:18-20). Quando ele escreveu “O nome dele é João”, “sua boca foi aberta e sua língua foi solta, e ele começou a falar, louvando a Deus” (Lucas 1:63, 64). Depois, “cheio de espírito santo”, profetizou (Lucas 1:67). Isso mostra onde estava o coração dele o tempo todo.
+Complementar 2: Zacarias tinha ficado mudo desde que duvidou do anjo Gabriel, que lhe disse: “você ficará mudo e não poderá falar até o dia em que essas coisas ocorrerem, porque não acreditou nas minhas palavras” (Lucas 1:20). Quando ele escreveu “O nome dele é João”, “sua boca foi aberta e sua língua foi solta, e ele começou a falar, louvando a Deus” (Lucas 1:63, 64). Depois, “cheio de espírito santo”, profetizou (Lucas 1:67). Isso mostra onde estava o coração dele o tempo todo.
 
 Pra Laurinha: Ele falou do Salvador que vinha.
 ```
@@ -50,7 +50,7 @@ Resposta: (a) Deus tinha prometido dar ao seu povo um presente maravilhoso: a sa
 
 Complementar 1: Vale notar a distância entre nascer e se tornar o Salvador ungido: Jesus nasceu, mas só se tornou oficialmente o Messias 30 anos depois, no batismo. Nascer com a designação e cumprir a designação são dois momentos diferentes, tanto na vida de Jesus quanto, em menor escala, na nossa própria caminhada até assumirmos plenamente um privilégio de serviço.
 
-Complementar 2: A profecia de Zacarias sobre um evento que só se cumpriria décadas depois mostra a mesma confiança que Abraão teve na promessa de Gênesis 22:17, 18: Jeová não precisa que a profecia se cumpra na hora pra ela ser digna de fé.
+Complementar 2: A profecia de Zacarias fala de um evento que só se cumpriria depois: Jeová não precisa que a profecia se cumpra na hora pra ela ser digna de fé.
 
 Pra Laurinha: Um Salvador: Jesus.
 ```
@@ -97,7 +97,7 @@ Resposta: Desde 1914, Jesus reina no céu no "trono de Davi, seu pai" (Lucas 1:3
 
 Complementar 1: O plano de salvação não termina no Armagedom, termina só depois do teste final ao fim dos Mil Anos. É importante não confundir "início da libertação" com "libertação completa": ainda existe um processo inteiro de aperfeiçoamento entre as duas coisas.
 
-Complementar 2: 2 Coríntios 9:15 chama a salvação de "Sua indescritível dádiva". A palavra "indescritível" é forte de propósito: nenhuma explicação humana consegue abarcar totalmente o tamanho do que Jeová está oferecendo por meio de Jesus.
+Complementar 2: O parágrafo 6 fecha com 2 Coríntios 9:15, “Graças sejam dadas a Deus por Sua indescritível dádiva”, e explica que essa dádiva "inclui nossa salvação por meio de Jesus Cristo".
 
 Pra Laurinha: Jesus vai acabar com a morte.
 ```
@@ -111,7 +111,7 @@ O que aprendemos nesse trecho: por causa do resgate, temos o privilégio de serv
 ```
 Resposta: "o privilégio de lhe prestar destemidamente serviço sagrado" (Lucas 1:74, 75). Nosso "serviço sagrado" a Jeová inclui todos os aspectos da adoração verdadeira: pregar, orar, estudar a Bíblia, assistir às reuniões, assembleias e congressos, além de atividades ligadas à adoração, como serviço em Betel e construção e manutenção de Salões do Reino e de Assembleias.
 
-Complementar 1: Repare que "serviço sagrado" é uma categoria bem mais ampla do que só pregar. Alguém que serve na manutenção de um Salão do Reino está prestando o mesmo tipo de serviço sagrado que alguém pregando de casa em casa, mesmo que a atividade pareça mais "prática" que "espiritual".
+Complementar 1: Repare que "serviço sagrado" é uma categoria bem mais ampla do que só pregar. Alguém que serve na manutenção de um Salão do Reino também está prestando serviço sagrado, porque essa atividade está "diretamente ligada à nossa adoração".
 
 Complementar 2: A palavra "privilégio" já aparece antes de "destemidamente" na frase de Zacarias. Isso importa: o texto não trata o serviço sagrado como obrigação pesada que exige coragem pra suportar, trata como algo tão bom que vale a pena fazer sem medo.
 
@@ -127,7 +127,7 @@ Complementar 1: Os dois medos que o texto nomeia, medo da morte e medo de rejei�
 
 Complementar 2: "Não cedemos ao medo" não significa não sentir medo nenhum diante de uma ameaça real. Significa que o medo, quando aparece, não muda a decisão de continuar leal. Coragem bíblica não é ausência de medo, é lealdade apesar dele.
 
-Pra Laurinha: De servir a Jeová.
+Pra Laurinha: Da morte e da rejeição.
 ```
 
 **9. Que dificuldade alguns cristãos têm?**
@@ -147,9 +147,9 @@ Pra Laurinha: Achar que Jeová não gosta deles.
 ```
 Resposta: Podemos pensar na seguinte ilustração: um homem quebra a perna, o médico coloca o osso no lugar e recomenda exercícios pra recuperar a força aos poucos. Se a pessoa acha que nunca mais vai recuperar totalmente a mobilidade, ela precisa confiar no médico e, com paciência, continuar seguindo a recomendação dele; com o tempo, a perna pode se recuperar, permitindo que ela ande ou até corra de novo. Da mesma forma, mesmo sofrendo muito em sentido emocional por causa de um pecado, devemos confiar em Jeová, lembrando que, por sua bondade imerecida e misericórdia, ele deu a vida do seu Filho pra nos curar em sentido espiritual (João 1:16, 17; Romanos 3:23, 24; 1 João 3:19, 20). Devemos seguir de perto a "recomendação médica": oração, estudo e atividades espirituais (Salmo 1:2; 1 Tessalonicenses 5:17; Hebreus 10:25). Pode levar tempo pra curar um coração que duvida do amor de Jeová, assim como leva tempo pra curar uma perna quebrada, mas nunca devemos desistir de Jeová, nem de nós mesmos, e devemos agradecer a ele todo dia pela força de continuar servindo fielmente.
 
-Complementar 1: A ilustração escolhe especificamente uma recuperação lenta, não instantânea. Isso é proposital: cura espiritual de um sentimento de culpa raramente é imediata, e esperar que seja pode fazer alguém desistir cedo demais do processo.
+Complementar 1: A ilustração escolhe especificamente uma recuperação lenta, não instantânea. Isso é proposital: a cura de um sentimento de culpa pode levar tempo, e "de início, pode ser difícil ver a melhora"; e esperar que seja pode fazer alguém desistir cedo demais do processo.
 
-Complementar 2: Repare que o médico já colocou o osso no lugar (o perdão já foi concedido), mas a recuperação da força ainda depende da pessoa seguir os exercícios (continuar na rotina espiritual). A "recomendação médica" citada, oração, estudo, atividades espirituais, são exatamente as mesmas atividades que definem o "serviço sagrado" do parágrafo 7: o próprio remédio pra dúvida sobre servir é continuar servindo, não parar até "se sentir melhor" primeiro.
+Complementar 2: Repare que o médico já colocou o osso no lugar (Jeová deu a vida do seu Filho para curar você), mas a recuperação da força ainda depende da pessoa seguir os exercícios (continuar na rotina espiritual). A "recomendação médica" citada, oração, estudo, atividades espirituais, incluem atividades que fazem parte do "serviço sagrado" do parágrafo 7: o próprio remédio pra dúvida sobre servir é continuar servindo, não parar até "se sentir melhor" primeiro.
 
 Pra Laurinha: Pedir ajuda e ter paciência.
 ```
@@ -163,7 +163,7 @@ O que aprendemos nesse trecho: assim como João apontou pra Jesus, hoje cabe a n
 ```
 Resposta: Zacarias disse ao próprio filho recém-nascido: "[Você] irá na frente de Jeová para preparar os caminhos dele." Quando cresceu, João se tornou um pregador zeloso, incentivando os judeus a se arrependerem, se batizarem e estarem prontos pra vinda do Messias. Depois de batizar Jesus, João o identificou como representante de Jeová, dizendo: "Vejam o Cordeiro de Deus, que tira o pecado do mundo!" E incentivou seus próprios discípulos a seguir Jesus, o Messias (João 1:29, 34-36, 40, 41).
 
-Complementar 1: Repare no desfecho da carreira de João: depois de apontar pra Jesus, ele incentivou os próprios discípulos a deixarem de segui-lo e seguirem Jesus. Preparar o caminho de verdade às vezes significa se retirar de cena no momento certo, não construir seguidores próprios.
+Complementar 1: Repare que, depois de identificar Jesus, João "incentivou seus próprios discípulos a seguir a Jesus". Quando ele disse “Vejam o Cordeiro de Deus!”, dois dos seus discípulos seguiram Jesus (João 1:36, 37).
 
 Complementar 2: A profecia foi feita quando João ainda era recém-nascido, décadas antes de ele cumprir qualquer parte dela. Isso mostra que Jeová via com clareza o papel de João muito antes de ele mesmo entender sua própria missão.
 
@@ -174,9 +174,9 @@ Pra Laurinha: João apontou as pessoas pra Jesus.
 ```
 Resposta: Segundo Zacarias, a vinda do Messias seria "um amanhecer", o início de uma nova era que mudaria a vida de todas as pessoas. A notícia sobre esse presente da salvação precisava ser espalhada pro maior número possível de pessoas, e João sozinho não teria condições de fazer isso.
 
-Complementar 1: A imagem de "amanhecer" sugere início gradual de luz, não um clarão instantâneo. Isso combina com o padrão real: a mensagem de Jesus se espalhou aos poucos, começando por poucas pessoas, até alcançar o mundo inteiro décadas e séculos depois.
+Complementar 1: O artigo explica "um amanhecer" como o início de uma nova era, um acontecimento marcante que mudaria a vida de todas as pessoas. Zacarias diz que seria “para dar luz aos sentados na escuridão e na sombra da morte” (Lucas 1:79).
 
-Complementar 2: Reconhecer os próprios limites, "João não teria condições de fazer isso sozinho", é o que abre espaço pra pergunta seguinte: quem mais divulgaria a mensagem? Essa mesma humildade de reconhecer limite pessoal é o que nos leva, hoje, a depender uns dos outros na pregação.
+Complementar 2: Reconhecer os próprios limites, "João não teria condições de fazer isso sozinho", é o que abre espaço pra pergunta seguinte: quem mais divulgaria a mensagem? Hoje também dependemos uns dos outros na pregação.
 
 Pra Laurinha: Um dia novo ia começar.
 ```
@@ -199,7 +199,7 @@ Resposta: Em breve, a humanidade vai enfrentar uma "grande tribulação, como nu
 
 Complementar 1: Repare que o valor da pregação de hoje não termina hoje: o texto diz que pessoas vão "se lembrar da mensagem que pregamos" só quando a tribulação já tiver começado. Uma conversa aparentemente sem resultado agora pode germinar anos depois, num momento que ainda não chegou.
 
-Complementar 2: A referência a Mateus 24:14 e Marcos 13:10 (pregar “em testemunho a todas as nações”) liga a pregação de hoje diretamente ao cronograma do fim: o texto não trata a pregação como só uma atividade boa, trata como condição declarada pra chegar ao fim deste sistema.
+Complementar 2: A referência a Mateus 24:14 (pregar “em testemunho a todas as nações”) e Marcos 13:10 (“as boas novas têm de ser pregadas primeiro”) liga a pregação de hoje diretamente ao cronograma do fim: o texto não trata a pregação como só uma atividade boa, trata como condição declarada pra chegar ao fim deste sistema.
 
 Pra Laurinha: O fim está chegando.
 ```
@@ -211,7 +211,7 @@ Resposta: As palavras de Zacarias em Lucas 1:68-79 lembram de três coisas: o ma
 
 Complementar 1: Repare que o artigo termina exatamente com as mesmas três coisas do início (parágrafo 1): presente, privilégio, responsabilidade. A estrutura circular reforça que as três não são pontos isolados, são uma sequência lógica: recebemos o presente, isso nos dá o privilégio de servir, e o privilégio nos leva à responsabilidade de anunciar.
 
-Complementar 2: A expressão "dia de vingança" de Jeová, citada no fechamento, é a mesma frase de Isaías 61:2 que Jesus leu na sinagoga (Lucas 4:19), mas ele parou de ler logo antes dessa expressão, depois de “o ano aceitável de Jeová”, e enrolou o rolo (Lucas 4:19, 20). O artigo diz pra falar hoje das duas coisas: do “ano de boa vontade de Jeová” e do “dia de vingança” dele.
+Complementar 2: A expressão "dia de vingança", citada no fechamento, vem de Isaías 61:2: “o dia de vingança do nosso Deus”. Quando leu esse trecho na sinagoga, Jesus parou em “para pregar o ano aceitável de Jeová” e enrolou o rolo (Lucas 4:19, 20). O artigo diz pra falar hoje das duas coisas: do “ano de boa vontade de Jeová” e do “dia de vingança” dele.
 
 Pra Laurinha: Vou pregar com alegria.
 ```
