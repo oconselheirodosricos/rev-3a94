@@ -10,7 +10,7 @@
 @RESUMO A leitura de Jeremias 40 e 41 mostra dois destinos bem diferentes pra duas pessoas que temiam a Jeová. Jeremias, liberto da corrente pelos próprios babilônios, recebe a opção de ir pra Babilônia com honra ou ficar em Judá, e escolhe ficar com o restante do povo sob o novo governador, Gedalias (Jeremias 40:1-6). Gedalias governa com sabedoria, tranquilizando quem tinha fugido e incentivando o povo a se estabelecer de novo na terra (Jeremias 40:7-12), mas ignora um aviso claro de conspiração contra a própria vida (Jeremias 40:13-16). Ismael o assassina, junto com judeus e soldados caldeus que estavam com ele, e depois massacra um grupo de peregrinos que vinha em paz (Jeremias 41:1-9). Jeremias sobrevive; Gedalias não. Jeová protegeu um, mas não impediu a morte do outro, mesmo os dois temendo a Jeová. Pra estudar bem, leia os dois capítulos perguntando não “por que Jeová permitiu isso”, mas “o que esse contraste me ensina sobre o tipo de proteção que Jeová promete”.
 @ENTENDENDO Entendendo a Leitura da Semana
 - O que está acontecendo aqui | Depois da queda de Jerusalém, dois homens fiéis enfrentam destinos opostos: Jeremias é libertado e protegido; Gedalias, avisado da conspiração contra ele, não age e é assassinado (Jeremias 40:1-6; 41:1, 2).
-- O que aprendo sobre Jeová nesta leitura | Que a fidelidade a Jeová nunca foi uma garantia de livramento automático de todo perigo, doença ou morte: Jeová salva quando e como ele decide, não como um seguro contra sofrimento.
+- O que aprendo sobre Jeová nesta leitura | Que a fidelidade a Jeová não é uma garantia de livramento automático de todo perigo, doença ou morte: Jeová salva quando e como ele decide, não como um seguro contra sofrimento.
 - O que isso me ensina a fazer | A não medir o cuidado de Jeová pelo resultado imediato de uma situação, e a levar a sério um aviso claro de perigo, do jeito que Gedalias deveria ter levado (Jeremias 40:13-16).
 @APLICACAO
 - Na relação com Jeová | Perguntar se eu só confio em Jeová quando o resultado é o que eu esperava, ou se minha fé aguenta um resultado como o de Gedalias (Jeremias 41:1, 2).
@@ -178,7 +178,7 @@ Resposta: A libertação do Egito formou a nação através da qual viria o Mess
 @CAMPO Sua resposta
 Resposta: Uma pergunta possível: o que exatamente mudou dentro dele entre o Moisés que pediu a Jeová que enviasse “qualquer outro” (Êxodo 4:13) e o Moisés que voltou a Faraó dez vezes seguidas sem desistir.
 @APRENDAMAIS Aprenda mais
-Veja como o significado do nome de Jeová pode ajudar crianças pequenas a ser corajosas. Vídeo *O nome de Jeová* (1:54).
+Veja como o significado do nome de Jeová pode ajudar crianças pequenas a ser corajosas. O nome de Jeová (1:54).
 O que Moisés aprendeu sobre as qualidades de Jeová com as experiências que passou? "Conheça os caminhos de Jeová" (w05 15/5 20-25).
 @HAPLICAR Na família: usar o vídeo "O nome de Jeová" com crianças pequenas que se sentem inseguras diante de uma tarefa (como ler um nome difícil), lembrando que o mesmo Jeová que ajudou Moisés ajuda quem pede. Na congregação: oferecer-se como o "Arão" de um irmão inseguro numa nova designação, apoiando na prática, não só de palavra. No campo: usar o exemplo de Moisés com quem acha que "não tem talento" pra pregar: a qualificação de Moisés não veio dele, veio de Jeová.
 

@@ -21,7 +21,7 @@
 - Na vida | Escolher amizades que amam a Jeová, do jeito que Shannon precisou fazer pra sair da armadilha das redes sociais (Tiago 4:4).
 - Na família | Contar uns aos outros uma oração que Jeová já respondeu, pra fortalecer a confiança de todos em casa (Provérbios 22:17).
 - Na congregação | Reconhecer que discernir "essa dúvida é tática de Satanás" é uma habilidade que se aprende, e ajudar quem estiver passando por isso sem julgamento, do jeito que os pais e anciãos ajudaram Shannon.
-- Na pregação | Usar o exemplo de Jó com quem sofre e pensa que Deus não se importa: a resposta bíblica nunca foi "você não está sofrendo", foi "Deus não abandonou você por causa do sofrimento".
+- Na pregação | Usar o exemplo de Jó com quem sofre e pensa que Deus não se importa: a resposta bíblica não é "você não está sofrendo", é "Deus não abandonou você por causa do sofrimento".
 @ORACAO Ideias pra levar a Jeová (não é oração pronta, é direção): agradecer pela garantia de que ele e Jesus se importam de verdade, mesmo quando a vida dói; pedir discernimento pra reconhecer quando um pensamento de dúvida é a tática de Satanás, não uma reflexão honesta; agradecer por ajudas concretas já recebidas; e pedir força pra escolher bem as amizades, do jeito que Shannon precisou escolher. Cada um pode meditar: a última vez que duvidei do cuidado de Jeová, eu percebi que aquilo era uma tática, ou só senti a dúvida como verdade?
 @FIM-ABERTURA
 
@@ -192,7 +192,7 @@ Resposta: Precisamos escolher bem nossas amizades (Tiago 4:4) e tomar cuidado pr
 
 Complementar 1: A imagem desta parte mostra a mesma irmã da primeira imagem agora caminhando na praia com o cachorro, numa reunião social, no testemunho com o carrinho e visitando o hospital com anciãos: o contraste com a enxurrada de redes sociais da imagem anterior é proposital: hábitos concretos substituem exposição descontrolada.
 
-Complementar 2: Atos 17:11 elogia os bereanos porque “examinavam cuidadosamente as Escrituras, todo dia” pra ver se o que ouviam era verdade: o antídoto contra desinformação nunca foi ingenuidade, foi verificação ativa contra a fonte confiável.
+Complementar 2: Atos 17:11 elogia os bereanos porque “examinavam cuidadosamente as Escrituras, todo dia” pra ver se o que ouviam era verdade: o antídoto contra desinformação não é ingenuidade, é verificação ativa contra a fonte confiável.
 
 Pra Laurinha: Estudar a Bíblia me protege.
 ```

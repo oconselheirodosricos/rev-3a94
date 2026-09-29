@@ -198,7 +198,7 @@ Pra Laurinha: Pergunto o que Jeová gostaria.
 
 ## CONHECER BEM A JEOVÁ TRAZ BÊNÇÃOS
 
-O que aprendemos nesse trecho: o alvo do estudo bíblico nunca foi acumular fatos, foi sempre conhecer Jeová de um jeito que muda a vida agora e garante um futuro com ele.
+O que aprendemos nesse trecho: o alvo do estudo bíblico não é acumular fatos, é conhecer Jeová de um jeito que muda a vida agora e garante um futuro com ele.
 
 **17. O que é mais importante que os estudantes da Bíblia aprendam?**
 

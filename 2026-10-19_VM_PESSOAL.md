@@ -178,7 +178,7 @@ Resposta: A conquista de Jericó abre caminho pra Israel tomar posse da Terra Pr
 Resposta: Uma pergunta possível: o que ele sentiu no sétimo dia, na sétima volta, sabendo que o próximo grito seria o sinal pra ver se a promessa de Jeová se cumpriria diante dos próprios olhos.
 @APRENDAMAIS Aprenda mais
 Como o exemplo de Josué nos ajuda a aprender dos mais velhos, a confiar nas promessas de Deus e a permanecer fiéis mesmo quando um irmão nos magoa? "De que Josué se lembrou" (w02 1/12 9-12).
-Ajude seus filhos a aprender sobre acontecimentos importantes na vida de Josué. Cartão bíblico "Josué".
+Ajude seus filhos a aprender sobre acontecimentos importantes na vida de Josué. “Josué” (Cartão bíblico no jw.org).
 @HAPLICAR Na família: conversar sobre instruções que parecem sem sentido à primeira vista (como preparo pra desastre) e por que vale obedecer mesmo sem entender cada detalhe. Na congregação: lembrar que orientações da organização podem não fazer sentido "militar" imediato, mas seguem o mesmo padrão de fé que sustentou Josué. No campo: usar o relato de Jericó pra mostrar que Jeová não depende de força humana convencional pra cumprir o que promete.
 
 @CANTICO 87 | As reuniões nos encorajam | encerramento, com oração e comentários finais, 3 min
